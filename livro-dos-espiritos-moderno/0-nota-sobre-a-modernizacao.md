@@ -2,7 +2,7 @@
 title: 'Nota sobre a modernização'
 ---
 
-A modernização visa facilitar a leitura e compreensão deste texto fundamental do Espiritismo, especialmente para leitores contemporâneos. Buscamos tornar a obra extremamente acessível, reformulando frases e estruturas quando necessário para melhorar o fluxo e a fluidez do texto, sempre preservando o sentido e a essência do conteúdo doutrinário. Como os próprios espíritos afirmam: "As palavras pouco importam" — o que verdadeiramente importa é o sentido e a mensagem transmitida.
+A modernização visa facilitar a leitura e compreensão deste texto fundamental do Espiritismo, especialmente para leitores contemporâneos. Buscamos tornar a obra extremamente acessível, reformulando frases e estruturas quando necessário para melhorar o fluxo e a fluidez do texto, sempre preservando o sentido e a essência do conteúdo doutrinário. Como os próprios espíritos afirmam: "As palavras pouco nos importam. Cabe a vocês organizar a linguagem de modo que consigam se entender."
 
 ##### Estrutura e Organização
 
