@@ -12,11 +12,9 @@ Para facilitar a referência cruzada e o estudo comparativo, os nomes dos capít
 
 O compromisso fundamental é preservar o sentido, a essência e o conteúdo doutrinário. As ideias, os conceitos e as respostas dos espíritos permanecem íntegros. As palavras podem ser alteradas, as frases podem ser reformuladas, os parágrafos podem ser reorganizados, mas o significado profundo deve ser mantido.
 
-##### Natureza do Projeto
+##### Licença
 
 Este é um projeto sem fins lucrativos, desenvolvido voluntariamente com o objetivo de disseminar o conhecimento espírita de forma mais acessível. Não há qualquer intenção comercial ou de lucro com esta modernização.
-
-##### Licença
 
 Este trabalho está disponível sob a licença Creative Commons CC0 1.0 Universal (Domínio Público), alinhado ao fato de que as obras originais de Allan Kardec também são de domínio público. Isso significa que você é livre para: Compartilhar, copiar e redistribuir o material em qualquer meio ou formato. Adaptar, remixar, transformar e construir sobre o material para qualquer propósito, mesmo comercialmente
 
