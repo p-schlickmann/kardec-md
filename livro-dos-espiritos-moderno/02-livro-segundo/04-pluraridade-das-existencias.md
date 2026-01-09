@@ -172,7 +172,7 @@ As raças que hoje habitam a Terra desaparecerão um dia, substituídas por sere
 
 *— Habitam certos mundos, mas não ficam presos a eles como os seres humanos à Terra. Podem estar em toda parte com mais facilidade do que os outros.*
 
-(Observação: Segundo os Espíritos, a Terra é, entre os mundos do nosso sistema, um dos menos adiantados moral e fisicamente. Marte estaria ainda abaixo dela, enquanto Júpiter lhe seria muito superior. O Sol não seria um mundo habitado por seres corpóreos, mas um centro de reunião dos Espíritos superiores, que irradiam seus pensamentos para os outros mundos por meio do fluido universal.)
+Segundo os Espíritos, a Terra é, entre os mundos do nosso sistema, um dos menos adiantados moral e fisicamente. Marte estaria ainda abaixo dela, enquanto Júpiter lhe seria muito superior. O Sol não seria um mundo habitado por seres corpóreos, mas um centro de reunião dos Espíritos superiores, que irradiam seus pensamentos para os outros mundos por meio do fluido universal.
 
 O tamanho dos planetas ou sua distância em relação ao Sol não determina seu grau de progresso. Vênus, ao que parece, é mais adiantado que a Terra, enquanto Saturno é inferior a Júpiter.
 
@@ -231,13 +231,15 @@ Quanto mais o ser humano progride nesta vida, menos longas e penosas serão as p
 
 O progresso do Espírito é sempre ascendente, nunca regressivo. Ele pode ocupar posições sociais humildes, mas não perde o nível espiritual já alcançado. Assim, um poderoso pode renascer em condição modesta e um humilde pode renascer em posição elevada, pois entre os seres humanos as posições sociais não refletem necessariamente a elevação moral. Herodes foi rei; Jesus, carpinteiro.
 
-###### 195 — A possibilidade de melhorar em vidas futuras não incentiva alguns a persistirem no mal?
+###### 195 — A possibilidade de melhorar em outra existência não pode levar certas pessoas a persistirem no mau caminho, acreditando que sempre poderão se corrigir mais tarde?
 
-*— Quem pensa assim, na verdade, não acredita em nada. Nem mesmo a ideia de um castigo eterno o conteria. Além disso, essa noção extrema conduz à incredulidade.*
+*— Quem pensa assim, na verdade, não acredita em nada. A ideia de um castigo eterno não o conteria mais do que qualquer outra, porque sua própria razão rejeita esse conceito. Além disso, essa noção extrema acaba conduzindo à incredulidade em relação a tudo. Se apenas meios racionais tivessem sido usados para orientar as pessoas, não haveria tantos céticos.*
 
-O Espírito imperfeito pode, durante a vida corporal, raciocinar dessa forma. Mas, ao se libertar da matéria, percebe rapidamente que fez um cálculo errado e leva sentimento oposto para a existência seguinte. É assim que ocorre o progresso.
+*De fato, um Espírito ainda imperfeito pode, durante a vida corporal, raciocinar dessa forma. No entanto, quando se liberta da matéria, passa a enxergar a realidade de outro modo. Logo percebe que fez um cálculo errado e leva para a nova existência um sentimento oposto ao que tinha antes. É assim que o progresso acontece. Eis também por que os seres humanos se encontram em graus tão diferentes de adiantamento: alguns já possuem experiências que outros ainda não têm, mas que adquirirão pouco a pouco.*
 
-A ideia de que as dificuldades da vida resultam das próprias imperfeições leva o ser humano a evitar o mal com mais eficácia do que a ameaça de um castigo eterno, no qual muitos sequer acreditam.
+*Cada pessoa pode acelerar o próprio progresso ou retardá-lo indefinidamente, conforme suas escolhas.*
+
+Quem ocupa uma condição infeliz deseja sair dela o mais rápido possível. Aquele que compreende que as dificuldades da vida terrena são consequência de suas próprias imperfeições procura garantir para si uma nova existência menos dolorosa. Essa compreensão o afasta do caminho do mal muito mais eficazmente do que a ameaça do fogo eterno, na qual ele sequer acredita.
 
 ###### 196 — Sendo as tribulações da vida corporal necessárias ao progresso, pode-se dizer que a vida material é um meio de purificação?
 
@@ -369,25 +371,31 @@ Os Espíritos encarnam ora como homens, ora como mulheres, porque não possuem s
 
 Não se deve concluir, a partir de semelhanças físicas fortuitas, que se trata do mesmo Espírito em existências sucessivas. Contudo, as qualidades morais frequentemente imprimem um caráter especial ao conjunto da aparência e dos modos, tornando reconhecível a elevação ou a inferioridade espiritual.
 
-
 ##### Ideias inatas
+###### 218 — Quando encarnado, o Espírito conserva algum vestígio das percepções e dos conhecimentos adquiridos em existências anteriores?
 
-###### 218 — Encarnado, o Espírito conserva vestígios de conhecimentos adquiridos em vidas anteriores?
+*— Conserva uma lembrança vaga, que dá origem ao que se chamam ideias inatas.*
 
-*— Conserva uma lembrança vaga, chamada de ideias inatas.*
+**— Então a teoria das ideias inatas não é uma fantasia?**
 
-###### 219 — Qual é a origem das aptidões extraordinárias de algumas pessoas?
+*— Não. Os conhecimentos adquiridos em cada existência não se perdem. Liberto da matéria, o Espírito sempre os conserva. Durante a encarnação, ele os esquece em parte e de forma temporária, mas a intuição que permanece o auxilia em seu progresso. Se não fosse assim, teria de recomeçar sempre do zero. Em cada nova existência, o ponto de partida do Espírito é aquele em que ele parou na existência anterior.*
 
-*— Lembranças do passado; progresso anterior do Espírito, embora inconsciente.*
+**— Deve haver, então, uma grande ligação entre duas existências consecutivas?**
 
-###### 220 — Ao mudar de corpo, o Espírito pode perder certas faculdades intelectuais?
+*— Nem sempre tão grande quanto possas imaginar, pois as condições do Espírito podem ser muito diferentes de uma existência para outra, e no intervalo entre ambas ele pode ter progredido bastante (216).*
 
-*— Sim, se as tiver usado mal. Além disso, algumas faculdades podem permanecer latentes durante uma existência, para reaparecerem em outra.*
+###### 219 — Qual é a origem das faculdades extraordinárias de pessoas que, sem estudo prévio, parecem ter intuição de certos conhecimentos, como línguas, cálculo e outros?
 
-###### 221 — A intuição instintiva da existência de Deus e da vida futura tem origem em lembranças anteriores?
+*— Lembranças do passado; progresso anterior do Espírito, do qual ele não tem consciência. De onde achas que viriam tais conhecimentos? O corpo muda, mas o Espírito permanece o mesmo, ainda que troque de envoltório.*
 
-*— Sim. É uma lembrança do estado espiritual anterior à encarnação, embora muitas vezes abafada pelo orgulho.*
+###### 220 — Ao mudar de corpo, o Espírito pode perder algumas faculdades intelectuais, como, por exemplo, o gosto pelas artes?
 
-**— As crenças espíritas difundidas entre todos os povos também têm essa origem?**
+*— Sim, se tiver deturpado sua inteligência ou a utilizado de forma inadequada. Além disso, uma faculdade pode permanecer adormecida durante uma existência, quando o Espírito decide exercitar outra que não tem relação com ela. Nesse caso, fica em estado latente para reaparecer mais tarde.*
 
-*— Sim. A doutrina espírita é tão antiga quanto a humanidade. A intuição do mundo espiritual sempre existiu, embora frequentemente deformada pela ignorância e pela superstição.*
+###### 221 — O sentimento instintivo que o ser humano possui da existência de Deus e o pressentimento da vida futura, mesmo em estado primitivo, devem-se a uma lembrança do passado?
+
+*— Sim. Trata-se de uma lembrança do que ele sabia como Espírito antes de encarnar. Porém, o orgulho frequentemente abafa esse sentimento.*
+
+**— As crenças relacionadas à doutrina espírita, encontradas em todos os povos, também se devem a essa mesma lembrança?**
+
+*— Sim. Essa doutrina é tão antiga quanto o mundo. É por isso que ela se encontra em toda parte, o que constitui prova de sua verdade. Conservando a intuição de seu estado espiritual, o Espírito encarnado mantém uma consciência instintiva do mundo invisível. No entanto, os preconceitos muitas vezes distorcem essa percepção, e a ignorância lhe mistura a superstição.*

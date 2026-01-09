@@ -63,7 +63,7 @@ O ser humano é, portanto, constituído de três partes essenciais:
 
 *— Não. O Espírito é indivisível e não pode animar simultaneamente dois seres distintos.*
 
-(Ver, em *O Livro dos Médiuns*, capítulo VII: *Da bicorporeidade e da transfiguração*.)
+(Ver, em O Livro dos Médiuns, capítulo VII: Da bicorporeidade e da transfiguração.)
 
 ###### 138 — O que pensar da opinião dos que consideram a alma como o princípio da vida material?
 

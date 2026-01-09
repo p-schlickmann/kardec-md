@@ -2,580 +2,561 @@
 title: 'Capítulo 9 - Intervenção dos Espíritos no mundo corporal'
 ---
 
-##### Faculdade, que têm os Espíritos, de penetrar os nossos pensamentos
-###### 456 — Veem os Espíritos tudo o que fazemos?
+##### Faculdade que têm os Espíritos de penetrar nossos pensamentos
+###### 456 — Os Espíritos veem tudo o que fazemos?
 
-*— Podem ver, pois que constantemente vos rodeiam. Cada um, porém, só vê aquilo a que dá atenção. Não se ocupam com o que lhes é indiferente.*
+*— Podem ver, pois estão constantemente ao redor de vocês. Cada Espírito, porém, só observa aquilo a que presta atenção. Não se ocupam do que lhes é indiferente.*
 
-###### 457 — Podem os Espíritos conhecer os nossos mais secretos pensamentos?
+###### 457 — Os Espíritos podem conhecer nossos pensamentos mais secretos?
 
-*— Muitas vezes chegam a conhecer o que desejaríeis ocultar de vós mesmos. Nem atos, nem pensamentos se lhes podem dissimular.*
+*— Muitas vezes conhecem até aquilo que vocês gostariam de esconder de si mesmos. Nem atos nem pensamentos lhes podem ser ocultados.*
 
-**— Assim, mais fácil nos seria ocultar de uma pessoa viva qualquer coisa, do que a esconder dessa mesma pessoa depois de morta?**
+**— Então seria mais fácil esconder algo de uma pessoa viva do que dessa mesma pessoa depois de morta?**
 
-*— Certamente. Quando vos julgais muito ocultos, é comum terdes ao vosso lado uma multidão de Espíritos que vos observam.*
+*— Certamente. Quando vocês acreditam estar bem escondidos, é comum haver ao seu lado uma multidão de Espíritos observando.*
 
-###### 458 — Que pensam de nós os Espíritos que nos cercam e observam?
+###### 458 — O que pensam de nós os Espíritos que nos cercam e nos observam?
 
-*— Depende. Os levianos riem das pequenas partidas que vos pregam e zombam das vossas impaciências. Os Espíritos sérios se condoem dos vossos reveses e procuram ajudar-vos.*
+*— Depende. Os Espíritos levianos riem das pequenas armadilhas que pregam e zombam da impaciência de vocês. Os Espíritos sérios se compadecem das dificuldades que enfrentam e procuram ajudar.*
 
 
 ##### Influência oculta dos Espíritos em nossos pensamentos e atos
-###### 459 — Influem os Espíritos em nossos pensamentos e em nossos atos?
+###### 459 — Os Espíritos influenciam nossos pensamentos e nossas ações?
 
-*— Mais do que imaginais, pois com bastante frequência são eles que vos dirigem.*
-###### 460 — De par com os pensamentos que nos são próprios, outros haverá que nos sejam sugeridos?
+*— Muito mais do que vocês imaginam, pois frequentemente são eles que os conduzem.*
 
-*— Vossa alma é um Espírito que pensa. Não ignorais que muitos pensamentos vos acodem a um tempo sobre o mesmo assunto e, não raro, contrários uns dos outros. Pois bem, no conjunto deles estão sempre de mistura os vossos com os nossos. Daí a incerteza em que vos vedes. É que tendes em vós duas ideias a se combaterem.*
+###### 460 — Além dos pensamentos que nos são próprios, existem outros que nos são sugeridos?
 
-###### 461 — Como havemos de distinguir os pensamentos que nos são próprios dos que nos são sugeridos?
+*— A alma de vocês é um Espírito que pensa. Vocês sabem que, muitas vezes, vários pensamentos surgem ao mesmo tempo sobre o mesmo assunto, e não raro entram em conflito. Pois bem: nesse conjunto, misturam-se os pensamentos de vocês com os nossos. Daí nasce a indecisão. É porque existem, em vocês, ideias que se enfrentam.*
 
-*— Quando um pensamento vos é sugerido, tendes a impressão de que alguém vos fala. Geralmente, os pensamentos próprios são os que acodem em primeiro lugar. Mas, afinal, não vos é de grande interesse estabelecer essa distinção. Muitas vezes, é útil que não saibais fazê-la. Não a fazendo, obra o homem com mais liberdade. Se se decide pelo bem, é voluntariamente que o pratica; se toma o mau caminho, maior será a sua responsabilidade.*
+###### 461 — Como distinguir os pensamentos próprios daqueles que nos são sugeridos?
 
-###### 462 — É sempre de si mesmos que os homens inteligentes e de gênio tiram suas ideias?
+*— Quando um pensamento é sugerido, vocês costumam ter a impressão de que alguém lhes fala. Em geral, os pensamentos próprios surgem primeiro. No entanto, não é tão importante saber distinguir uns dos outros. Muitas vezes é melhor que isso não seja possível. Assim, a pessoa age com mais liberdade. Quando escolhe o bem, o faz por vontade própria; quando escolhe o mal, sua responsabilidade é maior.*
 
-*— Algumas vezes elas lhes vêm do seu próprio Espírito, porém, de outras muitas, lhes são sugeridas por Espíritos que os julgam capazes de compreendê-las e dignos de transmiti-las. Quando tais homens não as acham em si mesmos, apelam para a inspiração. Fazem assim, sem o suspeitarem, uma verdadeira evocação.*
+###### 462 — As pessoas inteligentes e de gênio tiram sempre suas ideias apenas de si mesmas?
 
-Se fosse útil que pudéssemos distinguir claramente os nossos pensamentos próprios dos que nos são sugeridos, Deus nos haveria proporcionado os meios de o conseguirmos, como nos concedeu o de diferenciarmos o dia da noite. Quando uma coisa se conserva vaga, é que convém assim aconteça.
+*— Às vezes as ideias vêm do próprio Espírito delas; muitas outras vezes, são sugeridas por Espíritos que as consideram capazes de compreendê-las e dignas de transmiti-las. Quando não encontram essas ideias em si mesmas, recorrem à inspiração. Sem perceber, fazem assim uma verdadeira evocação.*
 
-###### 463 — Diz-se comumente ser sempre bom o primeiro impulso. É exato?
+Se fosse útil distinguir claramente nossos próprios pensamentos daqueles que nos são sugeridos, Deus teria nos dado meios claros para isso, como nos deu para distinguir o dia da noite. Quando algo permanece indefinido, é porque assim convém.
 
-*— Pode ser bom, ou mau, conforme a natureza do Espírito encarnado. É sempre bom naquele que atende às boas inspirações.*
+###### 463 — Diz-se que o primeiro impulso é sempre bom. Isso é verdade?
 
-###### 464 — Como distinguirmos se um pensamento sugerido procede de um Espírito bom ou de um Espírito mau?
+*— Pode ser bom ou mau, conforme a natureza do Espírito encarnado. É sempre bom para quem sabe ouvir as boas inspirações.*
 
-*— Estudai o caso. Os Espíritos bons só para o bem aconselham. Compete-vos discernir.*
-###### 465 — Com que fim os Espíritos imperfeitos nos induzem ao mal?
+###### 464 — Como distinguir se um pensamento sugerido vem de um Espírito bom ou de um Espírito mau?
 
-*— Para que sofrais como eles sofrem.*
+*— Analisem o conteúdo. Os Espíritos bons aconselham sempre para o bem. Cabe a vocês discernir.*
 
-**— E isso lhes diminui os sofrimentos?**
+###### 465 — Com que objetivo os Espíritos imperfeitos nos induzem ao mal?
 
-*— Não; mas fazem-no por inveja, por não poderem suportar que haja seres felizes.*
+*— Para que sofram como eles sofrem.*
 
-**— De que natureza é o sofrimento que procuram infligir aos outros?**
+**— Isso diminui o sofrimento deles?**
 
-*— Os que resultam de ser de ordem inferior a criatura e de estar afastada de Deus.*
+*— Não. Fazem isso por inveja, por não suportarem ver outros felizes.*
 
-###### 466 — Por que permite Deus que Espíritos nos excitem ao mal?
+**— Que tipo de sofrimento procuram causar?**
 
-*— Os Espíritos imperfeitos são instrumentos próprios a pôr em prova a fé e a constância dos homens na prática do bem. Como Espírito que és, tens que progredir na ciência do infinito. Daí o passares pelas provas do mal, para chegares ao bem. A nossa missão consiste em te colocarmos no bom caminho. Desde que sobre ti atuam influências más, é que as atrais, desejando o mal; porquanto os Espíritos inferiores correm a te auxiliar no mal, logo que desejes praticá-lo. Só quando queiras o mal podem eles ajudar-te para a prática do mal. Se fores propenso ao assassínio, terás em torno de ti uma nuvem de Espíritos a te alimentarem no íntimo esse pendor. Mas outros também te cercarão, esforçando-se por te influenciarem para o bem, o que restabelece o equilíbrio da balança e te deixa senhor dos teus atos.*
+*— O sofrimento de permanecer em condição inferior e afastado de Deus.*
 
-É assim que Deus confia à nossa consciência a escolha do caminho que devamos seguir e a liberdade de ceder a uma ou outra das influências contrárias que se exercem sobre nós.
+###### 466 — Por que Deus permite que Espíritos nos estimulem ao mal?
 
-###### 467 — Pode o homem eximir-se da influência dos Espíritos que procuram arrastá-lo ao mal?
+*— Os Espíritos imperfeitos servem para colocar à prova a fé e a perseverança das pessoas no bem. Como Espírito que és, precisas avançar no conhecimento do infinito, e isso exige enfrentar provas. Passa-se pelo mal para alcançar o bem. Nossa missão é orientar vocês para o caminho correto. Quando sofrem más influências, é porque as atraem por seus próprios desejos, pois os Espíritos inferiores se aproximam quando há inclinação para o mal. Só quando alguém deseja o mal é que eles podem ajudá-lo a praticá-lo. Se uma pessoa tende à violência, terá ao redor Espíritos que alimentam essa inclinação. Mas outros Espíritos também estarão presentes, tentando influenciá-la para o bem, restabelecendo o equilíbrio e preservando sua liberdade de escolha.*
 
-*— Pode, visto que tais Espíritos só se apegam aos que, pelos seus desejos, os chamam, ou aos que, pelos seus pensamentos, os atraem.*
-###### 468 — Renunciam às suas tentativas os Espíritos cuja influência a vontade do homem repele?
+Assim, Deus confia à consciência de cada um a escolha do caminho a seguir e a liberdade de ceder a uma ou outra influência.
 
-*— Que querias que fizessem? Quando nada conseguem, abandonam o campo. Entretanto, ficam à espreita de um momento propício, como o gato que tocaia o rato.*
+###### 467 — O ser humano pode livrar-se da influência dos Espíritos que tentam levá-lo ao mal?
 
-###### 469 — Por que meio podemos neutralizar a influência dos maus Espíritos?
+*— Pode, pois esses Espíritos só se ligam àqueles que os atraem por seus desejos ou pensamentos.*
 
-*— Praticando o bem e pondo em Deus toda a vossa confiança, repelireis a influência dos Espíritos inferiores e aniquilareis o império que desejam ter sobre vós. Guardai-vos de atender às sugestões dos Espíritos que vos suscitam maus pensamentos, que sopram a discórdia entre vós outros e que vos insuflam as paixões más. Desconfiai especialmente dos que vos exaltam o orgulho, pois que esses vos assaltam pelo lado fraco. Essa a razão por que Jesus, na oração dominical, vos ensinou a dizer: "Senhor! Não nos deixes cair em tentação, mas livra-nos do mal."*
+###### 468 — Os Espíritos cuja influência é rejeitada desistem de suas tentativas?
 
-###### 470 — Os Espíritos que ao mal procuram induzir-nos, e que põem assim em prova a nossa firmeza no bem, procedem desse modo cumprindo missão? E, se assim é, cabe-lhes alguma responsabilidade?
+*— O que você espera que façam? Quando nada conseguem, afastam-se. Mas ficam atentos, à espera de uma oportunidade, como o gato à espreita do rato.*
 
-*— A nenhum Espírito é dada a missão de praticar o mal. Aquele que o faz age por conta própria, sujeitando-se, portanto, às consequências. Pode Deus permitir-lhe que assim proceda, para vos experimentar; nunca, porém, lhe determina tal procedimento. Compete-vos, pois, repeli-lo.*
+###### 469 — Como neutralizar a influência dos maus Espíritos?
 
-###### 471 — Quando experimentamos uma sensação de angústia, de ansiedade indefinível, ou de íntima satisfação, sem que lhe conheçamos a causa, devemos atribuí-la unicamente a uma disposição física?
+*— Praticando o bem e confiando plenamente em Deus. Assim, vocês repelem os Espíritos inferiores e anulam o poder que eles desejam exercer. Evitem dar atenção às sugestões que despertam maus pensamentos, que criam discórdia ou alimentam paixões negativas. Desconfiem, sobretudo, daqueles que estimulam o orgulho, pois esse é o ponto mais vulnerável. Por isso Jesus ensinou na oração: “Não nos deixes cair em tentação, mas livra-nos do mal.”*
 
-*— É quase sempre efeito das comunicações em que inconscientemente entrais com os Espíritos, ou da que com eles tivestes durante o sono.*
+###### 470 — Os Espíritos que nos induzem ao mal cumprem alguma missão ao testar nossa firmeza no bem? Eles são responsáveis por isso?
 
-###### 472 — Os Espíritos que procuram atrair-nos para o mal se limitam a aproveitar as circunstâncias em que nos achamos, ou podem também criá-las?
+*— Nenhum Espírito recebe a missão de praticar o mal. Quem o faz age por conta própria e responde pelas consequências. Deus pode permitir essa ação como prova, mas jamais a ordena. Cabe a vocês resistir.*
 
-*— Aproveitam as circunstâncias ocorrentes, mas também costumam criá-las, impelindo-vos, sem que disso vos deis conta, para aquilo que cobiçais. Assim, por exemplo, encontra um homem, no seu caminho, certa quantia. Não penses tenham sido os Espíritos que a trouxeram para ali. Mas eles podem inspirar ao homem a ideia de tomar aquela direção e sugerir-lhe depois a de se apoderar da importância achada, enquanto outros lhe sugerem a de restituir o dinheiro ao seu legítimo dono. O mesmo se dá com relação a todas as demais tentações.*
+###### 471 — Quando sentimos angústia, ansiedade sem causa aparente ou uma alegria íntima inexplicável, isso é apenas efeito físico?
+
+*— Quase sempre é resultado das comunicações inconscientes que vocês mantêm com Espíritos, ou das que ocorreram durante o sono.*
+
+###### 472 — Os Espíritos que tentam nos levar ao mal apenas aproveitam as circunstâncias ou também as criam?
+
+*— Aproveitam as circunstâncias, mas também podem criá-las, conduzindo vocês, sem que percebam, para aquilo que desejam. Por exemplo, um homem encontra dinheiro em seu caminho. Não pensem que os Espíritos colocaram o dinheiro ali, mas podem tê-lo inspirado a seguir aquele caminho e depois sugerido que se apropriasse da quantia, enquanto outros lhe sugerem devolvê-la. O mesmo ocorre em todas as tentações.*
 
 
 ##### Possessos
-###### 473 — Pode um Espírito tomar temporariamente o envoltório corporal de uma pessoa viva, isto é, introduzir-se num corpo animado e obrar em lugar do outro que se acha encarnado neste corpo?
+###### 473 — Um Espírito pode tomar temporariamente o corpo de uma pessoa viva e agir em seu lugar?
 
-*— O Espírito não entra em um corpo como entras numa casa. Identifica-se com um Espírito encarnado, cujos defeitos e qualidades sejam os mesmos que os seus, a fim de obrar conjuntamente com ele. Mas o encarnado é sempre quem atua, conforme queira, sobre a matéria de que se acha revestido. Um Espírito não pode substituir-se ao que está encarnado, pois este terá que permanecer ligado ao seu corpo até ao termo fixado para sua existência material.*
+*— Um Espírito não entra em um corpo como alguém entra em uma casa. Ele se associa a um Espírito encarnado cujas imperfeições e qualidades sejam semelhantes às suas, para agir junto com ele. Mas quem atua sobre a matéria é sempre o encarnado, conforme sua vontade. Nenhum Espírito pode substituir aquele que está encarnado, pois este permanece ligado ao corpo até o fim de sua existência material.*
 
-###### 474 — Desde que não há possessão propriamente dita, isto é, coabitação de dois Espíritos no mesmo corpo, pode a alma ficar na dependência de outro Espírito, de modo a se achar subjugada ou obsidiada ao ponto de a sua vontade vir a achar-se, de certa maneira, paralisada?
+###### 474 — Se não há possessão no sentido de dois Espíritos ocuparem o mesmo corpo, pode a alma ficar dominada por outro Espírito a ponto de ter a vontade paralisada?
 
-*— Sem dúvida, e são esses os verdadeiros possessos. Mas é preciso saibas que essa dominação não se efetua nunca sem que aquele que a sofre o consinta, quer por sua fraqueza, quer por desejá-la. Muitos epiléticos ou loucos, que mais necessitavam de médico que de exorcismos, têm sido tomados por possessos.*
+*— Sim, e esses são os verdadeiros possessos. Mas essa dominação nunca ocorre sem o consentimento daquele que a sofre, seja por fraqueza, seja por desejo. Muitas pessoas doentes, como epilépticos ou indivíduos com transtornos mentais, foram confundidas com possessos, quando precisavam de cuidados médicos, não de exorcismos.*
 
-O vocábulo possesso, na sua acepção vulgar, supõe a existência de demônios, isto é, de uma categoria de seres maus por natureza, e a coabitação de um desses seres com a alma de um indivíduo, no seu corpo. Visto que, nesse sentido, não há demônios e que dois Espíritos não podem habitar simultaneamente o mesmo corpo, não há possessos na conformidade da ideia a que esta palavra se acha associada. O termo possesso só se deve admitir como exprimindo a dependência absoluta em que uma alma pode achar-se com relação a Espíritos imperfeitos que a subjuguem.
+O termo possesso, no sentido comum, pressupõe a existência de demônios como seres maus por natureza e a coabitação deles com a alma de alguém. Como não existem demônios nesse sentido e dois Espíritos não podem ocupar o mesmo corpo, não há possessão como normalmente se imagina. O termo só deve ser usado para indicar a dependência extrema de uma alma em relação a Espíritos imperfeitos que a dominam.
 
-###### 475 — Pode alguém por si mesmo afastar os maus Espíritos e libertar-se da dominação deles?
+###### 475 — Alguém pode afastar por si mesmo os maus Espíritos e libertar-se dessa dominação?
 
-*— Sempre é possível, a quem quer que seja, subtrair-se a um jugo, desde que com vontade firme o queira.*
-###### 476 — Mas não pode acontecer que a fascinação exercida pelo mau Espírito seja de tal ordem que o subjugado não a perceba? Sendo assim, poderá uma terceira pessoa fazer que cesse a sujeição da outra? E, nesse caso, qual deve ser a condição dessa terceira pessoa?
+*— Sempre que houver vontade firme, é possível livrar-se desse jugo.*
 
-*— Sendo ela um homem de bem, a sua vontade poderá ter eficácia, solicitando o concurso dos Espíritos bons, porque quanto mais se é homem de bem, tanto maior poder se terá sobre os Espíritos imperfeitos, para afastá-los, e sobre os bons, para os atrair. Todavia, nada poderá, se o que estiver subjugado não lhe prestar o seu concurso. Há pessoas a quem agrada uma dependência que lhes lisonjeia os gostos e os desejos. Qualquer, porém, que seja o caso, aquele que não tiver puro o coração nenhuma influência exercerá. Os Espíritos bons não lhe atendem ao chamado e os maus não o temem.*
+###### 476 — Pode acontecer que a fascinação seja tão forte que a pessoa não perceba que está dominada? Nesse caso, outra pessoa pode ajudá-la?
 
-###### 477 — As fórmulas de exorcismo têm alguma eficácia sobre os maus Espíritos?
+*— Se essa outra pessoa for moralmente elevada, sua vontade pode ser eficaz ao pedir auxílio aos Espíritos bons. Quanto mais moralmente elevada for, maior poder terá sobre os Espíritos imperfeitos. No entanto, nada conseguirá se o dominado não cooperar. Há quem goste dessa dependência, pois ela alimenta seus desejos. Além disso, quem não tiver o coração puro não exercerá influência alguma, pois os Espíritos bons não o atendem e os maus não o temem.*
 
-*— Não. Estes últimos riem e se obstinam, quando veem alguém tomar isso a sério.*
-###### 478 — Há pessoas animadas de boas intenções e que, nada obstante, não deixam de ser obsidiadas. Qual, então, o melhor meio de nos livrarmos dos Espíritos obsessores?
+###### 477 — As fórmulas de exorcismo têm eficácia contra os maus Espíritos?
 
-*— Cansar-lhes a paciência, nenhum valor lhes dar às sugestões, mostrar-lhes que perdem o tempo. Em vendo que nada conseguem, afastam-se.*
+*— Não. Eles zombam quando veem alguém levar isso a sério.*
 
-###### 479 — A prece é meio eficaz para a cura da obsessão?
+###### 478 — Algumas pessoas bem-intencionadas continuam obsidiadas. Qual o melhor meio de se libertarem?
 
-*— A prece é em tudo um poderoso auxílio. Mas não basta que alguém murmure algumas palavras para que obtenha o que deseja. Deus assiste os que obram, não os que se limitam a pedir. É, pois, indispensável que o obsidiado faça, por sua parte, o que se torne necessário para destruir em si mesmo a causa da atração dos maus Espíritos.*
+*— Ignorar completamente esses Espíritos, não dar valor às sugestões deles e mostrar que estão perdendo tempo. Quando percebem que não conseguem nada, afastam-se.*
 
-(Ver o Livro dos Médiuns, capítulo "Da obsessão".)
+###### 479 — A prece é eficaz contra a obsessão?
 
-###### 480 — Que se deve pensar da expulsão dos demônios, mencionada no Evangelho?
+*— A prece é sempre um grande auxílio. Mas não basta repetir palavras. Deus ajuda quem age, não quem apenas pede. É indispensável que o obsidiado trabalhe para eliminar em si mesmo a causa que atrai os maus Espíritos.*
 
-*— Depende da interpretação que se lhe dê. Se chamais demônio ao mau Espírito que subjugue um indivíduo, desde que se lhe destrua a influência, ele terá sido verdadeiramente expulso. Se ao demônio atribuirdes a causa de uma enfermidade, quando a houverdes curado direis com acerto que expulsastes o demônio. Uma coisa pode ser verdadeira ou falsa, conforme o sentido que empresteis às palavras. As maiores verdades estão sujeitas a parecer absurdos, uma vez que se atenda apenas à forma, ou que se considere como realidade a alegoria. Compreendei bem isto e não o esqueçais nunca, pois que se presta a uma aplicação geral.*
+(Ver *O Livro dos Médiuns*, capítulo “Da obsessão”.)
+
+###### 480 — O que pensar da expulsão dos demônios mencionada no Evangelho?
+
+*— Tudo depende da interpretação. Se chamarem de demônio o Espírito imperfeito que domina alguém, ao destruir essa influência, ele terá sido de fato expulso. Se atribuirem a um demônio a causa de uma doença, ao curá-la, podem dizer que expulsaram o demônio. Uma coisa pode ser verdadeira ou falsa conforme o sentido dado às palavras. Muitas verdades parecem absurdas quando se observa apenas a forma ou quando se toma a alegoria como realidade. Guardem bem isso, pois se aplica a muitos casos.*
 
 
 ##### Convulsionários
-###### 481 — Desempenham os Espíritos algum papel nos fenômenos que se dão com os indivíduos chamados convulsionários?
+###### 481 — Os Espíritos participam dos fenômenos observados nos chamados convulsionários?
 
-*— Sim e muito importante, bem como o magnetismo, que é a fonte primária de tais fenômenos. O charlatanismo, porém, os tem amiúde explorado e exagerado, de sorte a lançá-los ao ridículo.*
+*— Sim, de forma importante, assim como o magnetismo, que é a fonte principal desses fenômenos. O charlatanismo, porém, muitas vezes os explorou e exagerou, levando-os ao ridículo.*
 
-**— De que natureza são, em geral, os Espíritos que concorrem para a produção dessa espécie de fenômenos?**
+**— Que tipo de Espíritos costuma participar desses fenômenos?**
 
-*— Pouco elevada. Supondes que Espíritos superiores se deleitem com tais coisas?*
+*— Espíritos pouco elevados. Vocês acham que Espíritos superiores se divertiriam com isso?*
 
-###### 482 — Como é que sucede estender-se subitamente a toda uma população o estado anormal dos convulsionários e dos que sofrem das chamadas crises?
+###### 482 — Como se explica que o estado anormal dos convulsionários se espalhe subitamente por uma população inteira?
 
-*— Efeito de simpatia. As disposições morais se comunicam muito facilmente, em certos casos. Não sois tão alheio aos efeitos magnéticos que não compreendais isto, assim como a parte que alguns Espíritos naturalmente tomam no fato, por simpatia com os que os provocam.*
+*— É efeito de simpatia. As disposições morais se comunicam facilmente em certos casos. Vocês conhecem os efeitos do magnetismo e podem compreender isso, assim como a participação natural de Espíritos que simpatizam com os que provocam esses fenômenos.*
 
-Entre as singulares faculdades que se notam nos convulsionários, facilmente se reconhecem algumas de que o sonambulismo e o magnetismo oferecem numerosos exemplos, tais como, além de outras, a insensibilidade física, a leitura do pensamento, a transmissão das dores por simpatia, etc. Não há, pois, duvidar de que aqueles em quem tais crises se manifestam estejam numa espécie de sonambulismo desperto, provocado pela influência que exercem uns sobre os outros. Eles são ao mesmo tempo magnetizadores e magnetizados, inconscientemente.
+###### 483 — Qual a causa da insensibilidade física observada em convulsionários e em pessoas submetidas a grandes dores?
 
-###### 483 — Qual a causa da insensibilidade física que se observa em alguns convulsionários, assim como em outros indivíduos submetidos às mais atrozes torturas?
+*— Em alguns casos, é efeito exclusivo do magnetismo sobre o sistema nervoso. Em outros, a exaltação do pensamento diminui a sensibilidade. É como se a vida se afastasse do corpo para concentrar-se no Espírito. Quando o Espírito está intensamente focado em algo, o corpo não sente, não vê e não ouve.*
 
-*— Em alguns é, exclusivamente, efeito do magnetismo que atua sobre o sistema nervoso, do mesmo modo que certas substâncias. Em outros, a exaltação do pensamento embota a sensibilidade. Dir-se-ia que nestes a vida se retirou do corpo, para se concentrar toda no Espírito. Não sabeis que quando o Espírito está vivamente preocupado com uma coisa o corpo nada sente, nada vê e nada ouve?*
+A exaltação fanática e o entusiasmo explicam muitos casos em que pessoas suportam dores extremas com calma impressionante. Em batalhas, por exemplo, há combatentes que não percebem ferimentos graves, enquanto em situações comuns um pequeno ferimento os faria sofrer intensamente.
 
-A exaltação fanática e o entusiasmo têm proporcionado, em casos de suplícios, múltiplos exemplos de uma calma e de um sangue frio que não seriam capazes de triunfar de uma dor aguda, senão admitindo-se que a sensibilidade se acha neutralizada, como por efeito de um anestésico. Sabe-se que, no ardor da batalha, combatentes há que não se apercebem de que estão gravemente feridos, ao passo que, em circunstâncias ordinárias, uma simples arranhadura os poria trêmulos.
-
-Visto que esses fenômenos dependem de uma causa física e da ação de certos Espíritos, pode-se perguntar como, em alguns casos, há podido uma autoridade pública fazê-los cessar. Simples a razão. Meramente secundária é aqui a ação dos Espíritos, que nada mais fazem do que aproveitar-se de uma disposição natural. A autoridade não suprimiu essa disposição, mas a causa que a entretinha e exaltava. De ativa que era, passou esta a ser latente. E a autoridade teve razão para assim proceder, porque do fato resultava abuso e escândalo. Sabe-se, ademais, que semelhante intervenção nenhum poder absolutamente tem, quando a ação dos Espíritos é direta e espontânea.
+Esses fenômenos dependem de causas físicas e da ação de certos Espíritos. A autoridade pública, ao intervir, não elimina a causa espiritual, mas suprime a condição que favorecia o abuso e o escândalo, tornando latente o que antes era ativo. Nesses casos, a intervenção é legítima, pois a ação dos Espíritos era apenas secundária.
 
 
-##### Afeição que os Espíritos votam a certas pessoas
-###### 484 — Os Espíritos se afeiçoam de preferência a certas pessoas?
+##### Afeição dos Espíritos por certas pessoas
+###### 484 — Os Espíritos se afeiçoam mais a algumas pessoas do que a outras?
 
-*— Os Espíritos bons simpatizam com os homens de bem, ou suscetíveis de se melhorarem. Os Espíritos inferiores com os homens viciosos, ou que podem tornar-se tais. Daí suas afeições, como consequência da conformidade dos sentimentos.*
+*— Os Espíritos bons simpatizam com pessoas de bem ou com aquelas dispostas a melhorar. Os Espíritos inferiores se ligam aos viciosos ou aos que podem tornar-se assim. Daí surgem suas preferências, conforme a afinidade de sentimentos.*
 
-###### 485 — É exclusivamente moral a afeição que os Espíritos votam a certas pessoas?
+###### 485 — A afeição dos Espíritos é exclusivamente moral?
 
-*— A verdadeira afeição nada tem de carnal. Mas quando um Espírito se apega a alguém, nem sempre o faz só por afeição, podendo a ela agregar-se uma reminiscência das paixões humanas.*
+*— A afeição verdadeira não é carnal. Contudo, quando um Espírito se apega a alguém, nem sempre o faz apenas por afinidade moral; podem existir reminiscências de paixões humanas.*
 
-###### 486 — Interessam-se os Espíritos pelas nossas desgraças e pela nossa prosperidade? Afligem-se os que nos querem bem com os males que padecemos durante a vida?
+###### 486 — Os Espíritos se interessam por nossas alegrias e sofrimentos?
 
-*— Os Espíritos bons fazem todo o bem que lhes é possível e se sentem ditosos com as vossas alegrias. Afligem-se com os vossos males, quando os não suportais com resignação, porque nenhum benefício então tirais deles, assemelhando-vos, em tais casos, ao doente que rejeita a beberagem amarga que o há de curar.*
+*— Os Espíritos bons fazem todo o bem que podem e se alegram com suas felicidades. Sofrem com suas dores quando vocês não as enfrentam com resignação, pois então nada aprendem com elas.*
 
-###### 487 — Dentre os nossos males, de que natureza são os de que mais se afligem os Espíritos por nossa causa? Serão os males físicos ou os morais?
+###### 487 — Quais sofrimentos mais afligem os Espíritos por nossa causa: os físicos ou os morais?
 
-*— O vosso egoísmo e a dureza dos vossos corações. Daí decorre tudo o mais. Riem-se de todos esses males imaginários que nascem do orgulho e da ambição. Rejubilam com os que redundam na abreviação da duração das vossas provas.*
+*— O egoísmo e a dureza do coração. Desses nascem todos os outros males. Eles se compadecem pouco dos sofrimentos imaginários causados pelo orgulho e pela ambição, mas se entristecem profundamente com os males morais que afastam vocês do progresso.*
 
-Sabendo ser transitória a vida corporal e que as tribulações que lhe são inerentes constituem meios de alcançarmos melhor estado, os Espíritos mais se afligem pelas causas de ordem moral que dele nos afastam, do que pelos nossos sofrimentos físicos, todos passageiros.
+###### 488 — Os parentes e amigos que já partiram nos dedicam mais afeição do que Espíritos desconhecidos?
 
-Pouco se incomodam com as desgraças que apenas atingem as nossas ideias mundanas, tal qual fazemos com as mágoas pueris das crianças.
+*— Sim, e muitas vezes os protegem conforme as possibilidades que têm.*
 
-Vendo nas aflições da vida um meio de nos adiantarmos, os Espíritos as consideram como a crise momentânea de que resultará a salvação do doente. Compadecem-se dos nossos sofrimentos, como nos compadecemos dos de um amigo. Porém, enxergando as coisas de um ponto de vista mais justo, os apreciam de um modo diverso do nosso. Então, ao passo que os bons nos levantam o ânimo no interesse do nosso futuro, os outros nos impelem ao desespero, objetivando comprometê-lo.
+**— Eles sentem a afeição que ainda temos por eles?**
 
-###### 488 — Os parentes e amigos que nos precederam na outra vida votam-nos maior simpatia do que os Espíritos que nos são estranhos?
-
-*— Sem dúvida, e amiúde vos protegem como Espíritos, de acordo com o poder de que dispõem.*
-
-**— São sensíveis à afeição que lhes conservamos?**
-
-*— Muito sensíveis, mas esquecem-se dos que os olvidam.*
-
+*— Sentem profundamente, mas esquecem aqueles que os esquecem.*
 
 ##### Anjos guardiães. Espíritos protetores, familiares ou simpáticos
-###### 489 — Há Espíritos que se liguem particularmente a um indivíduo para protegê-lo?
+###### 489 — Há Espíritos que se ligam particularmente a uma pessoa para protegê-la?
 
-*— Há o irmão espiritual, o que chamais o bom Espírito ou o bom gênio.*
-###### 490 — Que se deve entender por anjo guardião?
+*— Existe o irmão espiritual, aquele que vocês chamam de bom Espírito ou bom gênio.*
 
-*— O Espírito protetor pertencente a uma ordem elevada.*
-###### 491 — Qual a missão do Espírito protetor?
+###### 490 — O que se deve entender por anjo guardião?
 
-*— A de um pai com relação aos filhos; a de guiar o seu protegido pela senda do bem, auxiliá-lo com seus conselhos, consolá-lo nas suas aflições, encorajá-lo nas provas da vida.*
+*— O Espírito protetor pertencente a uma ordem mais elevada.*
 
-###### 492 — O Espírito protetor liga-se ao indivíduo desde o seu nascimento?
+###### 491 — Qual é a missão do Espírito protetor?
 
-*— Desde o nascimento até a morte, e muitas vezes o acompanha na vida espírita, depois da morte, e mesmo através de muitas existências corpóreas, que mais não são do que fases curtíssimas da vida do Espírito.*
+*— A mesma de um pai em relação aos filhos: guiar a pessoa pelo caminho do bem, ajudá-la com conselhos, consolá-la nas aflições e encorajá-la nas provas da vida.*
 
-###### 493 — É voluntária ou obrigatória a missão do Espírito protetor?
+###### 492 — O Espírito protetor se liga à pessoa desde o nascimento?
 
-*— O Espírito fica obrigado a vos assistir, uma vez que aceitou esse encargo. Cabe-lhe, porém, o direito de escolher seres que lhe sejam simpáticos. Para alguns, é um prazer; para outros, missão ou dever.*
+*— Desde o nascimento até a morte, e muitas vezes a acompanha também na vida espiritual após a morte, e até mesmo ao longo de várias existências corporais, que não passam de fases muito breves da vida do Espírito.*
 
-**— Ligando-se a uma pessoa, renuncia o Espírito a proteger outros indivíduos?**
+###### 493 — A missão do Espírito protetor é voluntária ou obrigatória?
 
-*— Não; mas protege-os menos exclusivamente.*
+*— O Espírito assume o compromisso de assistir aquele a quem foi confiado, uma vez que aceita essa tarefa. No entanto, pode escolher pessoas com as quais tenha afinidade. Para alguns, isso é um prazer; para outros, uma missão ou um dever.*
 
-###### 494 — O Espírito protetor fica fatalmente preso à criatura confiada à sua guarda?
+**— Ao se ligar a uma pessoa, o Espírito deixa de proteger outras?**
 
-*— Frequentemente sucede que alguns Espíritos deixam suas posições de protetores para desempenhar diversas missões. Mas nesse caso outros os substituem.*
+*— Não, mas passa a protegê-las de forma menos direta.*
 
-###### 495 — Poderá dar-se que o Espírito protetor abandone o seu protegido, por se lhe mostrar este rebelde aos conselhos?
+###### 494 — O Espírito protetor fica inevitavelmente preso à pessoa sob sua guarda?
 
-*— Afasta-se, quando vê que seus conselhos são inúteis e que mais forte é, no seu protegido, a decisão de submeter-se à influência dos Espíritos inferiores. Mas não o abandona completamente e sempre se faz ouvir. É então o homem quem tapa os ouvidos. O protetor volta desde que este o chame.*
+*— Frequentemente acontece que alguns Espíritos deixam temporariamente a função de protetores para cumprir outras missões. Nesses casos, outros Espíritos os substituem.*
 
-*É uma doutrina, esta, dos anjos guardiães, que, pelo seu encanto e doçura, deveria converter os mais incrédulos. Não vos parece grandemente consoladora a ideia de terdes sempre junto de vós seres que vos são superiores, prontos sempre a vos aconselhar e amparar, a vos ajudar na ascensão da abrupta montanha do bem; mais sinceros e dedicados amigos do que todos os que mais intimamente se vos liguem na Terra? Eles se acham ao vosso lado por ordem de Deus. Foi Deus quem aí os colocou e, aí permanecendo por amor de Deus, desempenham bela, porém penosa missão. Sim, onde quer que estejais, estarão convosco. Nem nos cárceres, nem nos hospitais, nem nos lugares de devassidão, nem na solidão, estais separados desses amigos a quem não podeis ver, mas cujo brando influxo vossa alma sente, ao mesmo tempo que lhes ouve os ponderados conselhos.*
+###### 495 — Pode acontecer de o Espírito protetor afastar-se da pessoa, por ela se mostrar rebelde aos seus conselhos?
 
-*Ah! se conhecêsseis bem esta verdade! Quanto vos ajudaria nos momentos de crise! Quanto vos livraria dos maus Espíritos! Mas, oh! Quantas vezes, no dia solene, não se verá esse anjo constrangido a vos observar: "Não te aconselhei isto? Entretanto, não o fizeste. Não te mostrei o abismo? Contudo, nele te precipitaste! Não fiz ecoar na tua consciência a voz da verdade? Preferiste, no entanto, seguir os conselhos da mentira!" Oh! Interrogai os vossos anjos guardiães; estabelecei entre eles e vós essa terna intimidade que reina entre os melhores amigos. Não penseis em lhes ocultar nada, pois que eles têm o olhar de Deus e não podeis enganá-los. Pensai no futuro; procurai adiantar-vos na vida presente. Assim fazendo, encurtareis vossas provas e mais felizes tornareis as vossas existências. Vamos, homens, coragem! De uma vez por todas, lançai para longe todos os preconceitos e pensamentos ocultos. Entrai na nova senda que diante dos passos se vos abre. Caminhai! Tendes guias, segui-os, que não falhareis em atingir a meta, porquanto essa meta é o próprio Deus.*
+*— Ele se afasta quando percebe que seus conselhos são ignorados e que a pessoa prefere seguir a influência de Espíritos inferiores. No entanto, não a abandona por completo e continua tentando se fazer ouvir. É a própria pessoa que fecha os ouvidos. O protetor retorna assim que ela o chama.*
 
-*Aos que considerem impossível que Espíritos verdadeiramente elevados se consagrem a tarefa tão laboriosa e de todos os instantes, diremos que nós vos influenciamos as almas, estando embora muitos milhões de léguas distantes de vós. O espaço, para nós, nada é, e não obstante viverem noutro mundo, os nossos Espíritos conservam suas ligações com os vossos. Gozamos de qualidades que não podeis compreender, mas ficai certos de que Deus não nos impôs tarefa superior às nossas forças e de que não vos deixou sós na Terra, sem amigos e sem amparo. Cada anjo guardião tem o seu protegido, pelo qual vela, como o pai pelo filho. Alegra-se, quando o vê no bom caminho; sofre, quando ele lhe despreza os conselhos.*
+*A doutrina dos anjos guardiães, por sua ternura e consolação, deveria tocar até os mais incrédulos. Não é profundamente reconfortante saber que existem sempre ao nosso lado seres superiores, prontos a aconselhar, amparar e ajudar na difícil subida do caminho do bem? Amigos mais sinceros e dedicados do que muitos dos que nos cercam na Terra. Eles estão ao nosso lado por vontade de Deus. Foi Deus quem os colocou ali, e por amor a Ele permanecem conosco, cumprindo uma missão bela, embora exigente. Onde quer que estejamos, eles estão conosco: nem nas prisões, nem nos hospitais, nem nos lugares de degradação moral, nem na solidão estamos separados desses amigos invisíveis, cujo influxo suave a alma percebe e cujos conselhos prudentes ela escuta.*
 
-*Não receeis fatigar-nos com as vossas perguntas. Ao contrário, procurai estar sempre em relação conosco. Sereis assim mais fortes e mais felizes. São essas comunicações de cada um com o seu Espírito familiar que fazem sejam médiuns todos os homens, médiuns ignorados hoje, mas que se manifestarão mais tarde e se espalharão qual oceano sem margens, levando de roldão a incredulidade e a ignorância. Homens doutos, instruí os vossos semelhantes; homens de talento, educai os vossos irmãos. Não imaginais que obra fazeis desse modo: a do Cristo, a que Deus vos impõe. Para que vos outorgou Deus a inteligência e o saber, senão para os repartirdes com os vossos irmãos, senão para fazerdes que se adiantem pela senda que conduz à bem-aventurança, à felicidade eterna?*
+*Ah, se compreendessem bem essa verdade! Quanto ela ajudaria nos momentos difíceis! Quantas vezes afastaria a influência dos maus Espíritos! Mas quantas vezes, no dia decisivo, esse anjo não terá de lamentar: “Não te aconselhei? E, ainda assim, não me ouviste. Não te mostrei o abismo? E mesmo assim te lançaste nele. Não fiz ecoar em tua consciência a voz da verdade? Preferiste seguir a mentira.” Interroguem seus anjos guardiães. Criem com eles a intimidade que existe entre verdadeiros amigos. Não pensem em esconder nada, pois eles veem com o olhar de Deus, e não podem ser enganados. Pensem no futuro. Procurem avançar desde já. Assim, encurtarão as provas e tornarão suas existências mais felizes. Coragem, homens! Abandonem de vez os preconceitos e pensamentos ocultos. Entrem no novo caminho que se abre diante de vocês. Caminhem. Vocês têm guias: sigam-nos, e não deixarão de alcançar a meta, que é o próprio Deus.*
+
+*Aos que consideram impossível que Espíritos elevados se dediquem a uma tarefa tão constante e exigente, respondemos que influenciamos suas almas mesmo estando a milhões de léguas de distância. Para nós, o espaço não é obstáculo. Ainda que vivamos em outro mundo, mantemos laços com vocês. Possuímos qualidades que vocês ainda não compreendem, mas tenham certeza de que Deus não nos impôs tarefas acima de nossas forças e não deixou vocês sozinhos na Terra, sem amigos ou amparo. Cada anjo guardião tem alguém sob sua proteção, como um pai cuida de um filho. Alegra-se ao vê-lo no caminho certo e sofre quando seus conselhos são desprezados.*
+
+*Não tenham receio de nos cansar com suas perguntas. Ao contrário, procurem manter contato conosco. Assim, serão mais fortes e mais felizes. Essas comunicações entre cada pessoa e seu Espírito familiar fazem com que, de certo modo, todos sejam médiuns — ainda que hoje inconscientes disso. No futuro, essa faculdade se manifestará amplamente, espalhando-se como um oceano sem limites, varrendo a incredulidade e a ignorância. Homens instruídos, ensinem seus semelhantes; homens de talento, eduquem seus irmãos. Vocês não imaginam a obra que realizam assim: a obra do Cristo, aquela que Deus lhes confiou. Para que Deus lhes deu inteligência e conhecimento, senão para compartilhá-los, ajudando seus irmãos a avançar no caminho que leva à felicidade verdadeira?*
 
 São Luís, Santo Agostinho.
 
-Nada tem de surpreendente a doutrina dos anjos guardiães, a velarem pelos seus protegidos, malgrado a distância que medeia entre os mundos. É, ao contrário, grandiosa e sublime. Não vemos na Terra o pai velar pelo filho, ainda que de muito longe, e auxiliá-lo com seus conselhos correspondendo-se com ele? Que motivo de espanto haverá, então, em que os Espíritos possam, de um outro mundo, guiar os que tomaram sob sua proteção, uma vez que, para eles, a distância que vai de um mundo a outro é menor do que a que, na Terra, separa os continentes? Não dispõem, além disso, do fluido universal, que entrelaça todos os mundos, tornando-os solidários; veículo imenso da transmissão dos pensamentos, como o ar é, para nós, o da transmissão do som?
+Nada há de surpreendente na doutrina dos anjos guardiães, que velam por aqueles que protegem, apesar da distância entre os mundos. Pelo contrário, ela é grandiosa e sublime. Não vemos, na Terra, um pai cuidar do filho mesmo à distância, ajudando-o com conselhos? Por que então seria estranho que os Espíritos, de outro mundo, possam guiar aqueles que tomaram sob sua proteção, se para eles a distância entre os mundos é menor do que a que separa continentes na Terra? Além disso, eles dispõem do fluido universal, que liga todos os mundos, tornando-os solidários — um imenso veículo de transmissão do pensamento, assim como o ar é, para nós, o meio da transmissão do som.
 
-###### 496 — O Espírito que abandona o seu protegido, que deixa de lhe fazer bem, pode fazer-lhe mal?
+###### 496 — O Espírito que se afasta de seu protegido, deixando de ajudá-lo, pode prejudicá-lo?
 
-*— Os bons Espíritos nunca fazem mal. Deixam que o façam aqueles que lhes tomam o lugar. Costumais então lançar à conta da sorte as desgraças que vos acabrunham, quando só as sofreis por culpa vossa.*
+*— Os bons Espíritos jamais fazem o mal. Eles apenas permitem que Espíritos inferiores ocupem esse espaço. Então, vocês costumam atribuir à sorte os males que sofrem, quando na verdade são consequência das próprias escolhas.*
 
-###### 497 — Pode um Espírito protetor deixar o seu protegido à mercê de outro Espírito que lhe queira fazer mal?
+###### 497 — Um Espírito protetor pode deixar seu protegido exposto à ação de outro Espírito que queira prejudicá-lo?
 
-*— Os maus Espíritos se unem para neutralizar a ação dos bons. Mas, se o quiser, o protegido dará toda a força ao seu protetor. Pode acontecer que o bom Espírito encontre alhures uma boa vontade a ser auxiliada. Aplica-se então a isso, enquanto aguarda o momento de voltar ao seu protegido.*
+*— Os Espíritos inferiores se unem para neutralizar a ação dos bons. Mas, se quiser, o protegido pode dar toda a força ao seu protetor. Pode acontecer que o bom Espírito encontre, em outro lugar, alguém disposto a receber auxílio, e se dedique a isso enquanto aguarda o momento de retornar.*
 
-###### 498 — Será por não poder lutar contra Espíritos maléficos que um Espírito protetor deixa que seu protegido se transvie na vida?
+###### 498 — O Espírito protetor permite que seu protegido se desvie por não conseguir lutar contra Espíritos maus?
 
-*— Não é porque não possa, mas porque não quer. E não quer, porque das provas sai o seu protegido mais instruído e perfeito. Assiste-o sempre com seus conselhos, dando-os por meio dos bons pensamentos que lhe inspira, mas que infelizmente nem sempre são ouvidos. A fraqueza, o descuido ou o orgulho do homem são exclusivamente o que empresta força aos maus Espíritos, cujo poder todo advém do fato de lhes não opordes resistência.*
+*— Não é por incapacidade, mas por escolha. Ele não impede porque das provas surgem o aprendizado e o aperfeiçoamento do protegido. Ele continua a orientar por meio de bons pensamentos, que infelizmente nem sempre são ouvidos. A fraqueza, o descuido e o orgulho da pessoa é que dão força aos maus Espíritos, cujo poder só existe quando não encontram resistência.*
 
-###### 499 — O Espírito protetor está constantemente com o seu protegido? Não haverá alguma circunstância em que, sem abandoná-lo, ele o perca de vista?
+###### 499 — O Espírito protetor está sempre junto de seu protegido ou pode, em certas circunstâncias, afastar-se sem abandoná-lo?
 
-*— Há circunstâncias em que não é necessário esteja o Espírito protetor junto do seu protegido.*
+*— Há situações em que não é necessário que o Espírito protetor esteja constantemente ao lado da pessoa.*
 
-###### 500 — Chegará um tempo em que o Espírito deixe de precisar de anjos guardiães?
+###### 500 — Chega um momento em que o Espírito não precisa mais de anjo guardião?
 
-*— Sim, quando ele atinge o ponto de poder guiar-se a si mesmo, como sucede ao estudante, para o qual um momento chega em que não mais precisa de mestre. Isso, porém, não se dá na Terra.*
+*— Sim, quando alcança o ponto de poder guiar-se sozinho, como o estudante que chega ao momento em que não precisa mais do professor. Isso, porém, não acontece enquanto se está na Terra.*
 
-###### 501 — Por que é oculta a ação dos Espíritos sobre a nossa existência e por que, quando nos protegem, não o fazem de modo ostensivo?
+###### 501 — Por que a ação dos Espíritos sobre nossa vida é oculta? E por que, quando nos protegem, não o fazem de modo evidente?
 
-*— Se vos fosse dado contar sempre com a ação deles, não obraríeis por vós mesmos e o vosso Espírito não progrediria. Para que este possa adiantar-se, precisa de experiência, adquirindo-a frequentemente à sua custa. É necessário que exercite suas forças, sem o que seria como a criança a quem não consentem que ande sozinha. A ação dos Espíritos que vos querem bem é sempre regulada de maneira que não vos tolha o livre-arbítrio, porquanto, se não tivésseis responsabilidade, não avançaríeis na senda que vos há de conduzir a Deus. Não vendo quem o ampara, o homem se confia às suas próprias forças. Sobre ele, entretanto, vela o seu guia e, de tempos a tempos, lhe brada, advertindo-o do perigo.*
+*— Porque, se vocês dependessem sempre dessa ação, deixariam de agir por si mesmos, e o Espírito não progrediria. Para avançar, ele precisa da experiência, muitas vezes adquirida com esforço próprio. É necessário exercitar suas forças; caso contrário, seria como uma criança que nunca aprende a andar sozinha. A ação dos Espíritos bons é sempre equilibrada para não tirar o livre-arbítrio. Sem responsabilidade, não há progresso. Mesmo sem vê-los, vocês contam com a vigilância do guia, que, de tempos em tempos, alerta sobre os perigos.*
 
-###### 502 — O Espírito protetor que consegue trazer ao bom caminho o seu protegido lucra algum bem para si?
+###### 502 — O Espírito protetor que consegue conduzir seu protegido ao bem recebe algum benefício?
 
-*— Constitui isso um mérito que lhe é levado em conta, seja para seu progresso, seja para sua felicidade. Sente-se ditoso quando vê bem-sucedidos os seus esforços, o que representa, para ele, um triunfo, como triunfo é, para um preceptor, os bons êxitos do seu educando.*
+*— Isso lhe conta como mérito, seja para seu progresso, seja para sua felicidade. Ele se sente feliz ao ver o sucesso de seus esforços, como um educador se alegra com o êxito do aluno.*
 
-**— É responsável pelo mau resultado de seus esforços?**
+**— Ele é responsável quando o resultado é negativo?**
 
-*— Não, pois que fez o que de si dependia.*
+*— Não, pois fez tudo o que estava ao seu alcance.*
 
-###### 503 — Sofre o Espírito protetor quando vê que seu protegido segue mau caminho, não obstante os conselhos que dele recebe? Não há aí uma causa de turbação da sua felicidade?
+###### 503 — O Espírito protetor sofre ao ver seu protegido seguir mau caminho, apesar de seus conselhos?
 
-*— Compungem-no os erros do seu protegido, a quem lastima. Tal aflição, porém, não tem analogia com as angústias da paternidade terrena, porque ele sabe que há remédio para o mal, e que o que não se faz hoje, amanhã se fará.*
+*— Ele se entristece com os erros do protegido, mas essa dor não se compara às angústias humanas. Ele sabe que há remédio para o mal e que o que não é feito hoje poderá ser feito amanhã.*
 
-###### 504 — Poderemos sempre saber o nome do nosso Espírito protetor, ou anjo guardião?
+###### 504 — Podemos saber o nome do nosso Espírito protetor?
 
-*— Como quereis saber nomes para vós inexistentes? Supondes que Espíritos só há os que conheceis?*
+*— Como esperar nomes que não existem para vocês? Acham que só existem Espíritos conhecidos por vocês?*
 
-**— Como então o podemos invocar, se o não conhecemos?**
+**— Como invocá-lo, então, se não sabemos seu nome?**
 
-*— Dai-lhe o nome que quiserdes, o de um Espírito superior que vos inspire simpatia ou veneração. O vosso protetor acudirá ao apelo que com esse nome lhe dirigirdes, visto que todos os Espíritos bons são irmãos e se assistem mutuamente.*
+*— Dêem-lhe o nome que quiserem, de um Espírito elevado que lhes inspire respeito ou carinho. O protetor atenderá, pois todos os Espíritos bons são irmãos e se auxiliam.*
 
-###### 505 — Os Espíritos protetores que dão nomes conhecidos sempre são, realmente, os Espíritos das personalidades que tiveram esses nomes?
+###### 505 — Os Espíritos protetores que se apresentam com nomes conhecidos são realmente aqueles que tiveram esses nomes?
 
-*— Não. Muitas vezes, os que os dão são Espíritos simpáticos aos que de tais nomes usaram na Terra e, a mando destes, respondem ao vosso chamamento. Fazeis questão de nomes; eles tomam um que vos inspire confiança. Quando não podeis desempenhar pessoalmente determinada missão, não costumais mandar que outro, por quem respondeis como por vós mesmos, obre em vosso nome?*
+*— Nem sempre. Muitas vezes são Espíritos simpáticos a essas figuras, que respondem em nome delas, com autorização. Assim como vocês delegam alguém para agir em seu nome, os Espíritos fazem o mesmo.*
 
-###### 506 — Na vida espírita reconheceremos o nosso Espírito protetor?
+###### 506 — Na vida espiritual, reconheceremos nosso Espírito protetor?
 
-*— Decerto, pois não é raro que o tenhais conhecido antes de encarnardes.*
-###### 507 — Pertencem todos os Espíritos protetores à classe dos Espíritos superiores? Poderão alguns pertencer às classes intermédias? Um pai, por exemplo, pode tornar-se o Espírito protetor de seu filho?
+*— Sim, pois não é raro que já o conhecessem antes de encarnar.*
 
-*— Pode, mas a proteção pressupõe certo grau de elevação e um poder ou uma virtude a mais, concedidos por Deus. O pai que protege seu filho pode, por seu turno, ser assistido por um Espírito mais elevado.*
+###### 507 — Todos os Espíritos protetores pertencem à classe dos Espíritos superiores? Um pai pode tornar-se protetor do próprio filho?
 
-###### 508 — Os Espíritos que se achem em boas condições ao deixarem a Terra sempre podem proteger os que lhes são caros e que lhes sobrevivem?
+*— Pode, mas a proteção exige certo grau de elevação e autoridade moral. Um pai pode proteger o filho, mas também pode ser auxiliado por um Espírito mais elevado.*
 
-*— Mais ou menos restrito é o poder de que desfrutam. A situação em que se encontram nem sempre lhes permite inteira liberdade de ação.*
+###### 508 — Espíritos que deixam a Terra em boas condições sempre podem proteger os que lhes são queridos?
 
-###### 509 — Quando em estado selvagem ou de inferioridade moral, têm os homens, igualmente, seus Espíritos protetores? Caso tenham, serão de ordem tão elevada quanto a dos Espíritos protetores de homens muito adiantados?
+*— O poder de que dispõem varia conforme a situação em que se encontram, e nem sempre têm plena liberdade de ação.*
 
-*— Todo homem tem um Espírito que por ele vela, mas as missões são relativas ao fim que visam. Não dais um professor de filosofia a uma criança que está aprendendo a ler. O progresso do Espírito familiar guarda relação com o do Espírito protegido. Tendo um Espírito que vela por vós, podeis tornar-vos, a vosso turno, o protetor de outro que vos seja inferior, e os progressos que este realize, com o auxílio que lhe dispensardes, contribuirão para o vosso adiantamento. Deus não exige do Espírito mais do que comportem a sua natureza e o grau de elevação a que já chegou.*
+###### 509 — Pessoas em estado de selvageria ou inferioridade moral também têm Espíritos protetores?
 
-###### 510 — Quando o pai que vela pelo filho reencarna, continua a velar por ele?
+*— Todo ser humano tem um Espírito que vela por ele, mas as missões são proporcionais ao grau de evolução. Não se dá um professor de filosofia a uma criança que está aprendendo a ler. O progresso do Espírito protetor acompanha o do protegido. Assim, ao ser protegido hoje, você poderá amanhã tornar-se protetor de alguém menos adiantado. O progresso daquele que você auxilia contribui também para o seu próprio avanço.*
 
-*— Isso é mais difícil. Contudo, de certo modo o faz, pedindo, num instante de desprendimento, a um Espírito simpático que o assista nessa missão. Ademais, os Espíritos só aceitam missões que possam desempenhar até ao fim.*
+###### 510 — Quando um pai protetor reencarna, ele continua a proteger o filho?
 
-*— Encarnado, mormente em mundo onde a existência é material, o Espírito se acha muito sujeito ao corpo para poder dedicar-se inteiramente a outro Espírito, isto é, para poder assisti-lo pessoalmente. Tanto assim que os que ainda se não elevaram bastante são também assistidos por outros, que lhes estão acima, de tal sorte que, se por qualquer circunstância um vem a faltar, outro lhe supre a falta.*
+*— Isso se torna mais difícil. Ainda assim, ele pode, em momentos de desprendimento, pedir a um Espírito simpático que o substitua. Além disso, os Espíritos só aceitam missões que podem cumprir até o fim.*
 
-###### 511 — A cada indivíduo achar-se-á ligado, além do Espírito protetor, um mau Espírito, com o fim de impeli-lo ao erro e de lhe proporcionar ocasiões de lutar entre o bem e o mal?
+*Encarnado, sobretudo em mundos materiais, o Espírito fica muito preso ao corpo para dedicar-se inteiramente a outro. Por isso, mesmo os que ainda não se elevaram muito são assistidos por Espíritos superiores, de modo que, se um falhar, outro o substitui.*
 
-*— Ligado não é o termo. É certo que os maus Espíritos procuram desviar do bom caminho o homem, quando se lhes depara ocasião. Sempre, porém, que um deles se liga a um indivíduo, age por si mesmo, porque conta ser atendido. Há então luta entre o bom e o mau, vencendo aquele por quem o homem se deixe influenciar.*
+###### 511 — Além do Espírito protetor, cada pessoa tem também um mau Espírito ligado a ela para levá-la ao erro?
 
-###### 512 — Podemos ter muitos Espíritos protetores?
+*— Ligado não é a palavra certa. Os Espíritos maus se aproximam quando encontram oportunidade. Há sempre uma luta entre o bem e o mal, e vence aquele a quem a pessoa decide ouvir.*
 
-*— Todo homem conta sempre Espíritos mais ou menos elevados que com ele simpatizam, que lhe dedicam afeto e por ele se interessam, como também tem junto de si outros que o assistem no mal.*
+###### 512 — Podemos ter vários Espíritos protetores?
 
-###### 513 — Os Espíritos que conosco simpatizam atuam em cumprimento de missão?
+*— Toda pessoa tem Espíritos mais ou menos elevados que simpatizam com ela e se interessam por seu progresso, assim como outros que a influenciam negativamente.*
 
-*— Algumas vezes desempenham missão temporária. Mais frequentemente, porém, trata-se apenas de atração pela similitude de pensamentos e sentimentos, assim para o bem como para o mal.*
+###### 513 — Os Espíritos simpáticos atuam por missão?
 
-**— Parece lícito inferir-se daí que os Espíritos a quem somos simpáticos podem ser bons ou maus, não?**
+*— Às vezes, cumprem missões temporárias. Mais frequentemente, agem por afinidade de pensamentos e sentimentos, seja para o bem, seja para o mal.*
 
-*— Sim, qualquer que seja o seu caráter, o homem sempre encontra Espíritos que com ele simpatizem.*
+**— Isso significa que Espíritos simpáticos podem ser bons ou maus?**
 
-###### 514 — Os Espíritos familiares são os mesmos a quem chamamos Espíritos simpáticos ou Espíritos protetores?
+*— Sim. O ser humano sempre atrai Espíritos semelhantes a si.*
 
-*— Há gradações na proteção e na simpatia. Dai-lhes os nomes que quiserdes. O Espírito familiar é antes o amigo da casa.*
+###### 514 — Os Espíritos familiares são os mesmos que os simpáticos ou os protetores?
 
-Das explicações acima e das observações feitas sobre a natureza dos Espíritos que se afeiçoam ao homem, pode-se deduzir o seguinte:
+*— Há gradações. O Espírito familiar é, antes de tudo, um amigo próximo.*
 
-O Espírito protetor, anjo guardião, ou bom gênio é o que tem por missão acompanhar o homem na vida e ajudá-lo a progredir. É sempre de natureza superior, com relação ao protegido.
+Dos esclarecimentos acima, pode-se concluir:
 
-Os Espíritos familiares se ligam a certas pessoas por laços mais ou menos duráveis, com o fim de lhes serem úteis, dentro dos limites do poder, quase sempre muito restrito, de que dispõem. São bons, porém muitas vezes pouco adiantados e mesmo um tanto levianos. Ocupam-se de bom grado com as particularidades da vida íntima e só atuam por ordem ou com permissão dos Espíritos protetores.
+O Espírito protetor, anjo guardião ou bom gênio tem como missão acompanhar a pessoa e ajudá-la a progredir. É sempre superior ao protegido.
 
-Os Espíritos simpáticos são os que se sentem atraídos para o nosso lado por afeições particulares e ainda por uma certa semelhança de gostos e de sentimentos, tanto para o bem como para o mal. De ordinário, a duração de suas relações se acha subordinada às circunstâncias.
+Os Espíritos familiares ligam-se a certas pessoas para ajudá-las dentro de limites restritos. Em geral são bons, mas ainda pouco adiantados, e às vezes levianos. Atuam apenas com permissão dos Espíritos protetores.
 
-O mau gênio é um Espírito imperfeito ou perverso, que se liga ao homem para desviá-lo do bem. Obra, porém, por impulso próprio e não no desempenho de missão. A tenacidade da sua ação está em relação direta com a maior ou menor facilidade de acesso que encontre por parte do homem, que goza sempre da liberdade de escutar-lhe a voz ou de lhe cerrar os ouvidos.
+Os Espíritos simpáticos se aproximam por afinidade de gostos e sentimentos, tanto para o bem quanto para o mal, e sua permanência depende das circunstâncias.
 
-###### 515 — Que se há de pensar dessas pessoas que parecem ligar-se a certos indivíduos para levá-los fatalmente à perdição, ou para guiá-los pelo bom caminho?
+O mau gênio é um Espírito imperfeito que tenta desviar a pessoa do bem. Age por iniciativa própria e só tem poder quando encontra abertura. A pessoa é sempre livre para ouvi-lo ou resistir.
 
-*— Efetivamente, certas pessoas exercem sobre outras uma espécie de fascinação que parece irresistível. Quando isso se dá no sentido do mal, são maus Espíritos, de que outros Espíritos também maus se servem para subjugá-las. Deus permite que tal coisa ocorra para vos experimentar.*
+###### 515 — O que pensar de pessoas que parecem exercer influência irresistível sobre outras, levando-as ao bem ou ao mal?
 
-###### 516 — Poderiam os nossos bom e mau gênios encarnar, a fim de mais de perto nos acompanharem na vida?
+*— Em certos casos, trata-se de uma fascinação real. Quando ocorre para o mal, são Espíritos inferiores que, com ajuda de outros semelhantes, subjugam a vontade. Deus permite isso como prova.*
 
-*— Isso às vezes se dá. Mas também é comum encarregarem dessa missão outros Espíritos encarnados que lhes são simpáticos.*
+###### 516 — Os Espíritos bons e maus podem encarnar para acompanhar mais de perto alguém?
 
-###### 517 — Haverá Espíritos que se liguem a uma família inteira para protegê-la?
+*— Isso às vezes acontece. Mais frequentemente, encarregam dessa missão outros Espíritos encarnados que lhes são afins.*
 
-*— Alguns Espíritos se ligam aos membros de uma determinada família, que vivem juntos e unidos pela afeição; mas não acrediteis em Espíritos protetores do orgulho das raças.*
+###### 517 — Existem Espíritos ligados à proteção de uma família inteira?
 
-###### 518 — Assim como são atraídos, pela simpatia, para certos indivíduos, são-no igualmente os Espíritos, por motivos particulares, para as reuniões de indivíduos?
+*— Alguns Espíritos se ligam aos membros de uma família unida por afeto, mas não pensem em Espíritos protetores do orgulho das raças.*
 
-*— Os Espíritos preferem estar no meio dos que se lhes assemelham. Acham-se aí mais à vontade e mais certos de serem ouvidos. É pelas suas tendências que o homem atrai os Espíritos e isso quer esteja só, quer faça parte de um todo coletivo, como uma sociedade, uma cidade, ou um povo. Portanto, as sociedades, as cidades e os povos são, de acordo com as paixões e o caráter neles predominantes, assistidos por Espíritos mais ou menos elevados. Os Espíritos imperfeitos se afastam dos que os repelem. Segue-se que o aperfeiçoamento moral das coletividades, como o dos indivíduos, tende a afastar os maus Espíritos e a atrair os bons, que estimulam e alimentam nelas o sentimento do bem, como outros lhes podem insuflar as paixões grosseiras.*
+###### 518 — Assim como Espíritos se ligam a indivíduos por afinidade, podem também se ligar a grupos?
 
-###### 519 — As aglomerações de indivíduos, como as sociedades, as cidades, as nações, têm Espíritos protetores especiais?
+*— Sim. Os Espíritos preferem estar entre aqueles que lhes são semelhantes. Sociedades, cidades e povos atraem Espíritos conforme os pensamentos e sentimentos predominantes. O aperfeiçoamento moral coletivo afasta Espíritos inferiores e atrai os bons.*
 
-*— Têm, pela razão de que esses agregados são individualidades coletivas que, caminhando para um objetivo comum, precisam de uma direção superior.*
+###### 519 — Coletividades como cidades e nações têm Espíritos protetores?
 
-###### 520 — Os Espíritos protetores das coletividades são de natureza mais elevada do que os que se ligam aos indivíduos?
+*— Sim, porque são individualidades coletivas que seguem um objetivo comum e precisam de direção superior.*
 
-*— Tudo é relativo ao grau de adiantamento, quer das coletividades, quer dos indivíduos.*
+###### 520 — Os Espíritos protetores das coletividades são mais elevados que os dos indivíduos?
 
-###### 521 — Podem certos Espíritos auxiliar o progresso das artes, protegendo os que a elas se dedicam?
+*— Depende do grau de progresso tanto da coletividade quanto do indivíduo.*
 
-*— Há Espíritos protetores especiais e que assistem os que os invocam, quando dignos dessa assistência. Que queres, porém, que façam com os que julgam ser o que não são? Não lhes cabe fazer que os cegos vejam, nem que os surdos ouçam.*
+###### 521 — Espíritos podem auxiliar o progresso das artes e das ciências?
 
-Os antigos fizeram desses Espíritos divindades especiais. As Musas não eram senão a personificação alegórica dos Espíritos protetores das ciências e das artes, como os deuses Lares e Penates simbolizavam os Espíritos protetores da família. Também, modernamente, as artes, as diferentes indústrias, as cidades, os países têm seus patronos, que mais não são do que Espíritos superiores, sob várias designações.
+*— Sim. Existem Espíritos protetores dessas áreas, que assistem os que são dignos dessa ajuda.*
 
-Tendo todo homem Espíritos que com ele simpatizam, claro é que, nas coletividades, a generalidade dos Espíritos que lhes votam simpatia está em proporção com a generalidade dos indivíduos; que os Espíritos estranhos são atraídos para essas coletividades pela identidade dos gostos e dos pensamentos; em suma, que esses agregados de pessoas, tanto quanto os indivíduos, são mais ou menos bem assistidos e influenciados, de acordo com a natureza dos pensamentos dominantes entre os elementos que os compõem.
+As antigas tradições chamaram esses Espíritos de divindades. As Musas eram a personificação dos Espíritos protetores das artes e das ciências, assim como os Lares e Penates simbolizavam os protetores da família. Hoje, cidades, países e atividades também têm seus patronos, que são Espíritos superiores sob diferentes nomes.
 
-Nos povos, determinam a atração dos Espíritos os costumes, os hábitos, o caráter dominante e as leis, as leis sobretudo, porque o caráter de uma nação se reflete nas suas leis. Fazendo reinar em seu seio a justiça, os homens combatem a influência dos maus Espíritos. Onde quer que as leis consagrem coisas injustas, contrárias à humanidade, os Espíritos bons ficam em minoria e a multidão, que aflui, dos maus mantém a nação aferrada às suas ideias e paralisa as boas influências parciais, que ficam perdidas no conjunto, como insuladas espigas entre espinheiros. Estudando-se os costumes dos povos ou de qualquer reunião de homens, facilmente se forma ideia da população oculta que se lhes imiscui nos pensamentos e nos atos.
+Assim como ocorre com os indivíduos, as coletividades atraem Espíritos conforme os pensamentos predominantes. Nos povos, as leis têm papel fundamental, pois refletem o caráter da nação. Onde reina a justiça, os maus Espíritos perdem influência. Onde há leis injustas, os Espíritos inferiores se multiplicam e enfraquecem as boas influências, que se tornam isoladas. Observando os costumes e as leis de um povo, pode-se compreender a população invisível que atua sobre seus pensamentos e ações.
+
 
 ##### Pressentimentos
 ###### 522 — O pressentimento é sempre um aviso do Espírito protetor?
 
-*— É o conselho íntimo e oculto de um Espírito que vos quer bem. Também está na intuição da escolha que se haja feito; é a voz do instinto. Antes de encarnar, tem o Espírito conhecimento das fases principais de sua existência, isto é, do gênero das provas a que se submete. Tendo estas caráter assinalado, ele conserva, no seu foro íntimo, uma espécie de impressão de tais provas e esta impressão, que é a voz do instinto, fazendo-se ouvir quando se aproxima o momento de sofrê-las, se torna pressentimento.*
+*— É um conselho íntimo e discreto de um Espírito que deseja o seu bem. Também está ligado à intuição das escolhas feitas antes da encarnação. É a voz do instinto. Antes de encarnar, o Espírito conhece as principais fases da sua existência, isto é, o tipo de provas que irá enfrentar. Como essas provas têm características marcantes, ele conserva, em seu íntimo, uma espécie de lembrança delas. Essa lembrança, que se manifesta como instinto, torna-se pressentimento quando se aproxima o momento de vivê-las.*
 
-###### 523 — Como os pressentimentos e a voz do instinto são sempre um tanto vagos, que devemos fazer, na incerteza em que ficamos?
+###### 523 — Como os pressentimentos e a voz do instinto costumam ser vagos, o que devemos fazer quando ficamos em dúvida?
 
-*— Quando te achares na incerteza, invoca o teu bom Espírito, ou ora a Deus, soberano senhor de todos, para que te envie um de seus mensageiros, um de nós.*
+*— Quando estiveres na incerteza, invoca o teu Espírito protetor ou ora a Deus, soberano de tudo, para que te envie um de seus mensageiros, um de nós.*
 
-###### 524 — Os conselhos dos Espíritos protetores objetivam unicamente o nosso procedimento moral, ou também o proceder que devamos adotar nos assuntos da vida particular?
+###### 524 — Os conselhos dos Espíritos protetores dizem respeito apenas à nossa conduta moral ou também às decisões da vida pessoal?
 
-*— Tudo. Eles se esforçam para que vivais o melhor possível. Frequentemente, porém, tapais os ouvidos aos conselhos salutares, e vos tornais desgraçados por culpa vossa.*
+*— A tudo. Eles procuram ajudar para que vivam da melhor forma possível. Muitas vezes, porém, vocês ignoram esses conselhos e acabam sofrendo por causa das próprias escolhas.*
 
-Os Espíritos protetores nos ajudam com seus conselhos, mediante a voz da consciência que fazem ressoar em nosso íntimo. Como, porém, nem sempre ligamos a isso a devida importância, outros conselhos mais diretos eles nos dão, servindo-se das pessoas que nos cercam. Examine cada um as diversas circunstâncias felizes ou infelizes de sua vida, e verá que em muitas ocasiões recebeu conselhos de que se não aproveitou, e que lhe teriam poupado muitos desgostos, se os houvera escutado.
+Os Espíritos protetores nos orientam por meio da voz da consciência, que ressoa dentro de nós. Como nem sempre damos atenção a isso, eles também utilizam meios indiretos, como as pessoas ao nosso redor. Cada um pode analisar sua própria vida e perceber quantas vezes recebeu conselhos que, se tivessem sido seguidos, teriam evitado muitos sofrimentos.
 
 
-Influência dos Espíritos nos acontecimentos da vida.
-###### 525 — Exercem os Espíritos alguma influência nos acontecimentos da vida?
+##### Influência dos Espíritos nos acontecimentos da vida
+###### 525 — Os Espíritos exercem alguma influência nos acontecimentos da vida?
 
-*— Certamente, pois que vos aconselham.*
+*— Certamente, pois eles aconselham.*
 
-**— Exercem essa influência por outra forma que não apenas pelos pensamentos que sugerem, isto é, têm ação direta sobre o cumprimento das coisas?**
+**— Essa influência ocorre apenas por meio dos pensamentos que sugerem, ou eles também atuam diretamente nos acontecimentos?**
 
-*— Sim, mas nunca atuam fora das leis da natureza.*
+*— Sim, atuam, mas sempre dentro das leis da natureza.*
 
-Imaginamos erradamente que aos Espíritos só caiba manifestar sua ação por fenômenos extraordinários. Gostaríamos que nos viessem auxiliar por meio de milagres, e os figuramos sempre armados de uma varinha mágica. Por não ser assim é que oculta nos parece a intervenção que têm nas coisas deste mundo e muito natural o que se executa com o concurso deles. Assim é que, provocando, por exemplo, o encontro de duas pessoas, que suporão encontrar-se por acaso; inspirando a alguém a ideia de passar por determinado lugar; chamando-lhe a atenção para certo ponto, se disso resulta o que tenham em vista, eles obram de tal maneira que o homem, crente de que obedece a um impulso próprio, conserva sempre o seu livre-arbítrio.
+Costumamos imaginar que os Espíritos só atuam por meio de fenômenos extraordinários. Gostaríamos que nos ajudassem através de milagres e os imaginamos como se tivessem poderes mágicos. Como não é assim, a ação deles nos parece invisível e o que acontece nos soa apenas como algo natural. Eles podem, por exemplo, favorecer o encontro de duas pessoas que acreditam ter se encontrado por acaso; inspirar alguém a passar por determinado lugar; ou chamar sua atenção para algo específico. Mesmo assim, a pessoa continua acreditando que agiu por vontade própria, preservando sempre o livre-arbítrio.
 
-###### 526 — Tendo, como têm, ação sobre a matéria, podem os Espíritos provocar certos efeitos, com o objetivo de que se dê um acontecimento? Por exemplo: um homem tem que morrer; sobe uma escada, a escada se quebra e ele morre da queda. Foram os Espíritos que quebraram a escada, para que o destino daquele homem se cumprisse?
+###### 526 — Tendo ação sobre a matéria, podem os Espíritos provocar acontecimentos para que algo se cumpra? Por exemplo: um homem deve morrer; sobe uma escada, a escada quebra e ele morre da queda. Foram os Espíritos que quebraram a escada?
 
-*— É exato que os Espíritos têm ação sobre a matéria, mas para cumprimento das leis da natureza, não para as derrogar, fazendo que, em dado momento, ocorra um sucesso inesperado e em contrário àquelas leis. No exemplo que figuraste, a escada se quebrou porque se achava podre, ou por não ser bastante forte para suportar o peso de um homem. Se era destino daquele homem perecer de tal maneira, os Espíritos lhe inspirariam a ideia de subir a escada em questão, que teria de quebrar-se com o seu peso, resultando-lhe daí a morte por um efeito natural e sem que para isso fosse mister a produção de um milagre.*
+*— Os Espíritos têm ação sobre a matéria, mas sempre para cumprir as leis da natureza, nunca para contrariá-las. No exemplo, a escada se quebrou porque estava podre ou não suportava o peso. Se era destino daquele homem morrer dessa forma, os Espíritos apenas lhe inspirariam a ideia de subir aquela escada, que naturalmente se quebraria, sem que fosse necessário nenhum milagre.*
 
-###### 527 — Tomemos outro exemplo, em que não entre a matéria em seu estado natural. Um homem tem que morrer fulminado pelo raio. Refugia-se debaixo de uma árvore. Estala o raio e o mata. Poderá dar-se tenham sido os Espíritos que provocaram o raio, dirigindo-o para o homem?
+###### 527 — Consideremos outro caso: um homem deve morrer atingido por um raio. Ele se abriga debaixo de uma árvore e o raio cai ali. Os Espíritos provocaram o raio?
 
-*— Dá-se o mesmo que anteriormente. O raio caiu sobre aquela árvore em tal momento porque estava nas leis da natureza que assim acontecesse. Não foi encaminhado para a árvore por se achar debaixo dela o homem. A este, sim, foi inspirada a ideia de se abrigar debaixo de uma árvore sobre a qual cairia o raio, porquanto a árvore não deixaria de ser atingida, só por não lhe estar debaixo da fronde o homem.*
+*— O raio caiu naquele local porque assim determinavam as leis da natureza. Não foi atraído pelo homem. O que ocorreu foi que ele foi inspirado a se abrigar justamente sob aquela árvore, que seria atingida de qualquer forma.*
 
-###### 528 — No caso de uma pessoa mal intencionada disparar sobre outra um projétil que apenas lhe passe perto sem a atingir, poderá ter sucedido que um Espírito bondoso haja desviado o projétil?
+###### 528 — Se alguém dispara contra outra pessoa e o projétil passa muito perto sem atingi-la, pode ter havido a intervenção de um Espírito bondoso?
 
-*— Se o indivíduo alvejado não tem que perecer desse modo, o Espírito bondoso lhe inspirará a ideia de se desviar, ou então poderá ofuscar o que empunha a arma, de sorte a fazê-lo apontar mal, porquanto, uma vez disparada a arma, o projétil segue a linha que tem de percorrer.*
+*— Se a pessoa não estava destinada a morrer daquela forma, o Espírito bondoso pode inspirá-la a se desviar, ou então confundir momentaneamente quem dispara, fazendo-o errar o alvo. Uma vez disparado, o projétil segue naturalmente o seu curso.*
 
-###### 529 — Que se deve pensar das balas encantadas, de que falam algumas lendas e que fatalmente atingem o alvo?
+###### 529 — O que pensar das balas encantadas mencionadas em algumas lendas, que atingiriam fatalmente o alvo?
 
-*— Pura imaginação. O homem gosta do maravilhoso e não se contenta com as maravilhas da natureza.*
+*— Pura imaginação. O ser humano gosta do fantástico e não se satisfaz com as maravilhas naturais.*
 
-**— Podem os Espíritos que dirigem os acontecimentos da vida ter obstada sua ação por Espíritos que queiram o contrário?**
+**— Espíritos que dirigem acontecimentos podem ter sua ação impedida por outros Espíritos que desejam o contrário?**
 
-*— O que Deus quer se executa. Se houver demora na execução, ou lhe surgirem obstáculos, é porque ele assim o quis.*
+*— O que Deus quer sempre se realiza. Se há demora ou obstáculos, é porque assim foi permitido.*
 
-###### 530 — Não podem os Espíritos levianos e zombeteiros criar pequenos embaraços à realização dos nossos projetos e transtornar as nossas previsões? Serão eles, numa palavra, os causadores do que chamamos pequenas misérias da vida humana?
+###### 530 — Espíritos levianos e zombeteiros podem criar pequenos transtornos e atrapalhar nossos planos, sendo a causa das chamadas pequenas misérias da vida?
 
-*— Eles se comprazem em vos causar tais aborrecimentos, que representam para vós provas destinadas a exercitar a vossa paciência. Cansam-se, porém, quando veem que nada conseguem. Entretanto, não seria justo, nem acertado, imputar-lhes todas as decepções que experimentais e de que sois os principais culpados pela vossa irreflexão. Fica certo de que, se a tua louça se quebra, é mais por desazo teu do que por culpa dos Espíritos.*
+*— Eles gostam de causar esse tipo de aborrecimento, que serve como prova para exercitar a paciência. Mas se cansam quando percebem que não obtêm resultado. Ainda assim, não é justo atribuir a eles todas as frustrações, pois muitas decorrem da imprudência humana.*
 
-**— Destes, os que provocam contrariedades, obram impelidos por animosidade pessoal, ou assim procedem contra qualquer um, sem motivo determinado, por pura malícia?**
+**— Esses Espíritos agem por antipatia pessoal ou por simples malícia?**
 
-*— Por uma e outra coisa. Às vezes os que assim vos molestam são inimigos que granjeastes nesta ou em precedente existência. Outras vezes, nenhum motivo há.*
+*— Às vezes por antipatia, especialmente quando há inimizades de vidas passadas; outras vezes, por simples gosto em perturbar.*
 
-###### 531 — Extingue-se-lhes com a vida corpórea a malevolência dos seres que nos fizeram mal na Terra?
+###### 531 — A maldade daqueles que nos prejudicaram na Terra desaparece com a morte?
 
-*— Muitas vezes reconhecem a injustiça com que procederam e o mal que causaram. Mas, também, não é raro que continuem a perseguir-vos, cheios de animosidade, se Deus o permitir, por ainda vos experimentar.*
+*— Muitas vezes eles reconhecem o erro cometido. Mas também é comum que continuem perseguindo, se isso for permitido como prova.*
 
-**— Pode-se pôr termo a isso? Por que meio?**
+**— É possível pôr fim a isso? Como?**
 
-*— Sim. Orando por eles e lhes retribuindo o mal com o bem, acabarão compreendendo seu erro. Ademais, se souberdes colocar-vos acima de suas maquinações, deixar-vos-ão, por verificarem que nada lucram.*
+*— Sim. Orando por eles e respondendo ao mal com o bem. Assim, acabam compreendendo o erro. Além disso, quando vocês se colocam acima dessas influências, eles desistem por não obter vantagem.*
 
-A experiência demonstra que alguns Espíritos continuam em outra existência a exercer as vinganças que vinham tomando e que assim, cedo ou tarde, o homem paga o mal que tenha feito a outrem.
+###### 532 — Os Espíritos podem afastar males ou favorecer alguém com prosperidade?
 
-###### 532 — Têm os Espíritos o poder de afastar de certas pessoas os males e de favorecê-las com a prosperidade?
+*— Não completamente, pois há sofrimentos previstos pela Providência. Eles, porém, aliviam as dores, inspirando paciência e resignação. Muitas vezes, depende de vocês evitar ou suavizar esses males.*
 
-*— De todo, não; porquanto, há males que estão nos decretos da Providência. Amenizam-vos, porém, as dores, dando-vos paciência e resignação. Ficai igualmente sabendo que de vós depende muitas vezes poupar-vos aos males, ou, quando menos, atenuá-los.*
+Deus deu ao ser humano a inteligência para usá-la, e é principalmente por meio dela que os Espíritos auxiliam, sugerindo ideias úteis. Mas só ajudam de fato aqueles que também se ajudam.
 
-*A inteligência, Deus vo-la outorgou para que dela vos sirvais, e é principalmente por meio da vossa inteligência que os Espíritos vos auxiliam, sugerindo-vos ideias propícias ao vosso bem. Mas, não assistem senão os que sabem assistir-se a si mesmos. Esse o sentido destas palavras: buscai e achareis, batei e se vos abrirá.*
+###### 533 — Os Espíritos podem conceder riquezas a quem pede?
 
-*Sabei ainda que nem sempre é um mal o que vos parece sê-lo. Frequentemente, do que considerais um mal sairá um bem muito maior. Quase nunca compreendeis isso, porque só atentais no momento presente ou na vossa própria pessoa.*
-
-###### 533 — Podem os Espíritos fazer que obtenham riquezas os que lhes pedem que assim aconteça?
-
-*— Algumas vezes, como prova. Quase sempre, porém, recusam, como se recusa à criança a satisfação de um pedido inconsiderado.*
+*— Às vezes, como prova. Na maioria das vezes, recusam, como se faz com uma criança que pede algo imprudente.*
 
 **— São os bons ou os maus Espíritos que concedem esses favores?**
 
-*— Uns e outros. Depende da intenção. As mais das vezes, entretanto, os que concedem são os Espíritos que vos querem arrastar para o mal e que encontram meio fácil de o conseguirem, facilitando-vos os gozos que a riqueza proporciona.*
+*— Pode ser qualquer um, dependendo da intenção. Geralmente, os maus Espíritos facilitam riquezas quando isso pode conduzir ao excesso e ao desvio moral.*
 
-###### 534 — Quando obstáculos parecem fatalmente opor-se à realização dos nossos projetos, será por influência de algum Espírito?
+###### 534 — Quando obstáculos parecem impedir nossos projetos, isso é sempre influência espiritual?
 
-*— Algumas vezes é isso efeito da ação dos Espíritos; muito mais vezes, porém, é que andais errados na elaboração e na execução dos vossos projetos. Muito influem nesses casos a posição e o caráter do indivíduo. Se vos obstinais em ir por um caminho que não deveis seguir, os Espíritos nenhuma culpa têm dos vossos insucessos. Vós mesmos vos constituís em vossos maus gênios.*
+*— Às vezes sim, mas na maioria dos casos é erro de planejamento ou de execução. Se insistem em um caminho errado, não podem culpar os Espíritos pelos fracassos.*
 
-###### 535 — Quando algo de venturoso nos sucede é ao nosso Espírito protetor que devemos agradecê-lo?
+###### 535 — Quando algo bom acontece, devemos agradecer ao Espírito protetor?
 
-*— Agradecei primeiramente a Deus, sem cuja permissão nada se faz; depois aos bons Espíritos que foram os agentes da sua vontade.*
+*— Agradeçam primeiro a Deus, sem cuja permissão nada acontece, e depois aos bons Espíritos que foram instrumentos dessa vontade.*
 
-**— Que sucederia se nos esquecêssemos de agradecer?**
+**— E se esquecermos de agradecer?**
 
-*— O que sucede aos ingratos.*
+*— O mesmo que acontece aos ingratos.*
 
-**— No entanto, pessoas há que não pedem nem agradecem e às quais tudo sai bem!**
-
-*— Assim é, de fato, mas importa ver o fim. Pagarão bem caro essa felicidade de que não são merecedores, pois quanto mais houverem recebido, tanto maiores contas terão que prestar.*
-
-##### Ação dos Espíritos sobre os fenômenos da natureza
-###### 536 — São devidos a causas fortuitas, ou, ao contrário, têm todos um fim providencial, os grandes fenômenos da natureza, os que se consideram como perturbação dos elementos?
+###### 536 — Os grandes fenômenos da natureza são fruto do acaso ou têm finalidade providencial?
 
 *— Tudo tem uma razão de ser e nada acontece sem a permissão de Deus.*
 
-**— Objetivam sempre o homem esses fenômenos?**
+**— Esses fenômenos têm sempre o ser humano como objetivo?**
 
-*— Às vezes têm, como imediata razão de ser, o homem. Mas também é frequente terem por único motivo o restabelecimento do equilíbrio e da harmonia das forças físicas da natureza.*
+*— Às vezes sim, mas muitas vezes servem apenas para manter o equilíbrio e a harmonia das forças naturais.*
 
-**— Concebemos perfeitamente que a vontade de Deus seja a causa primária, nisto como em tudo; porém, sabendo que os Espíritos exercem ação sobre a matéria e que são os agentes da vontade de Deus, perguntamos se alguns dentre eles não exercerão certa influência sobre os elementos para os agitar, acalmar ou dirigir.**
+###### 537 — As antigas mitologias, que atribuíam fenômenos naturais a deuses, tinham fundamento?
 
-*— Mas evidentemente. Nem poderia ser de outro modo. Deus não exerce ação direta sobre a matéria. Ele encontra agentes dedicados em todos os graus da escala dos mundos.*
+*— Tinham mais fundamento do que se imagina, embora ainda estivessem longe da verdade completa.*
 
-###### 537 — A mitologia dos antigos se fundava inteiramente em ideias espíritas, com a única diferença de que consideravam os Espíritos como divindades. Representavam esses deuses ou esses Espíritos com atribuições especiais. Assim, uns eram encarregados dos ventos, outros do raio, outros de presidir ao fenômeno da vegetação, etc. Semelhante crença é destituída de fundamento?
+###### 538 — Os Espíritos que atuam nos fenômenos da natureza formam uma categoria especial?
 
-*— Tão pouco destituída é de fundamento, que ainda está muito aquém da verdade.*
+*— São Espíritos que já encarnaram ou que ainda encarnarão.*
 
-**— Pela mesma razão, poderá então haver Espíritos que habitem o interior da Terra e presidam aos fenômenos geológicos?**
+**— Pertencem a ordens superiores ou inferiores?**
 
-*— Tais Espíritos não habitam positivamente a Terra. Presidem aos fenômenos e os dirigem de acordo com as atribuições que têm. Dia virá em que tereis a explicação de todos esses fenômenos e os compreendereis melhor.*
+*— Depende da função. Os que executam tarefas mais materiais são de ordem inferior; os que dirigem são mais elevados.*
 
-###### 538 — Formam categoria especial no mundo espírita os Espíritos que presidem aos fenômenos da natureza? Serão seres à parte, ou Espíritos que foram encarnados como nós?
+###### 539 — Fenômenos como tempestades são obra de um único Espírito ou de vários?
 
-*— Que foram ou que o serão.*
+*— De muitos, reunidos em grandes conjuntos.*
 
-**— Pertencem esses Espíritos às ordens superiores ou às inferiores da hierarquia espírita?**
+###### 540 — Esses Espíritos atuam conscientemente ou por impulso instintivo?
 
-*— Isso é conforme seja mais ou menos material, mais ou menos inteligente o papel que desempenhem. Uns mandam, outros executam. Os que executam coisas materiais são sempre de ordem inferior, assim entre os Espíritos, como entre os homens.*
-
-###### 539 — A produção de certos fenômenos, das tempestades, por exemplo, é obra de um só Espírito, ou muitos se reúnem, formando grandes massas, para produzi-los?
-
-*— Reúnem-se em massas inumeráveis.*
-
-###### 540 — Os Espíritos que exercem ação nos fenômenos da natureza operam com conhecimento de causa, usando do livre-arbítrio, ou por efeito de instintivo ou irrefletido impulso?
-
-*— Uns sim, outros não. Estabeleçamos uma comparação. Considera essas miríades de animais que, pouco a pouco, fazem emergir do mar ilhas e arquipélagos. Julgas que não há aí um fim providencial e que essa transformação da superfície do globo não seja necessária à harmonia geral? Entretanto, são animais de ínfima ordem que executam essas obras, provendo às suas necessidades e sem suspeitarem de que são instrumentos de Deus. Pois bem: do mesmo modo, os Espíritos mais atrasados oferecem utilidade ao conjunto. Enquanto se ensaiam para a vida, antes que tenham plena consciência de seus atos e estejam no gozo do livre-arbítrio, atuam em certos fenômenos, de que inconscientemente se constituem os agentes. Primeiramente, executam. Mais tarde, quando suas inteligências já houverem alcançado um certo desenvolvimento, ordenarão e dirigirão as coisas do mundo material. Depois, poderão dirigir as do mundo moral. É assim que tudo serve, que tudo se encadeia na natureza, desde o átomo primitivo até o arcanjo, que também começou pelo átomo. Admirável lei de harmonia, que o vosso acanhado espírito ainda não pode apreender em seu conjunto!*
+*— Alguns têm consciência, outros não. Os Espíritos menos adiantados executam tarefas sem plena noção do conjunto, como instrumentos da lei divina.*
 
 ##### Os Espíritos durante os combates
-###### 541 — Durante uma batalha há Espíritos assistindo e amparando cada um dos exércitos?
+###### 541 — Durante uma batalha há Espíritos auxiliando os combatentes?
 
-*— Sim, e que lhes estimulam a coragem.*
+*— Sim, estimulando a coragem.*
 
-Os antigos figuravam os deuses tomando o partido deste ou daquele povo. Esses deuses eram simplesmente Espíritos representados sob forma alegórica.
+###### 542 — Se a justiça está de um lado, por que Espíritos apoiam causas injustas?
 
-###### 542 — Estando, numa guerra, a justiça sempre de um dos lados, como pode haver Espíritos que tomem o partido dos que se batem por uma causa injusta?
+*— Porque há Espíritos que se comprazem na discórdia e na destruição, sem se importar com a justiça.*
 
-*— Bem sabeis haver Espíritos que só se comprazem na discórdia e na destruição. Para esses, a guerra é a guerra. A justiça da causa pouco os preocupa.*
+###### 543 — Espíritos podem influenciar um general em seus planos?
 
+*— Sim, como em qualquer concepção.*
 
-###### 543 — Podem alguns Espíritos influenciar o general na concepção de seus planos de campanha?
+###### 544 — Maus Espíritos podem inspirar planos errados?
 
-*— Sem dúvida alguma. Podem influenciá-lo nesse sentido, como com relação a todas as concepções.*
+*— Podem, mas o general tem livre-arbítrio. Se não souber discernir, sofrerá as consequências.*
 
-###### 544 — Poderiam maus Espíritos suscitar-lhe planos errôneos com o fim de levá-lo à derrota?
+###### 545 — Um general pode ter uma intuição antecipando o resultado de seus planos?
 
-*— Podem; mas não tem ele o livre-arbítrio? Se não tiver critério bastante para distinguir uma ideia falsa, sofrerá as consequências e melhor faria se obedecesse, em vez de comandar.*
+*— Sim. Isso ocorre com pessoas de gênio. Essa inspiração vem dos Espíritos que as orientam.*
 
-###### 545 — Pode, alguma vez, o general ser guiado por uma espécie de segunda vista, por uma visão intuitiva, que lhe mostre de antemão o resultado de seus planos?
+###### 546 — O que acontece com os Espíritos dos que morrem em combate?
 
-*— Isso se dá amiúde com o homem de gênio. É o que ele chama inspiração e o que faz que obre com uma espécie de certeza. Essa inspiração lhe vem dos Espíritos que o dirigem, os quais se aproveitam das faculdades de que o veem dotado.*
+*— Alguns continuam interessados na batalha, outros se afastam.*
 
-###### 546 — No tumulto dos combates, que se passa com os Espíritos dos que sucumbem? Continuam, após a morte, a interessar-se pela batalha?
+###### 547 — Após a morte, antigos inimigos continuam se odiando?
 
-*— Alguns continuam a interessar-se, outros se afastam.*
+*— No início pode acontecer, mas com o retorno da lucidez o ódio tende a desaparecer, embora possam restar resquícios.*
 
-Dá-se nos combates o que ocorre em todos os casos de morte violenta: no primeiro momento o Espírito fica surpreendido e como que atordoado. Julga não estar morto. Parece-lhe que ainda toma parte na ação. Só pouco a pouco a realidade lhe surge.
+**— Eles ainda ouvem os sons da batalha?**
 
-###### 547 — Após a morte, os Espíritos que como vivos se guerreavam continuam a considerar-se inimigos, e se conservam encarniçados uns contra os outros?
+*— Sim. Perfeitamente.
 
-*— Nessas ocasiões o Espírito nunca está calmo. Pode acontecer que nos primeiros instantes depois da morte ainda odeie o seu inimigo e mesmo o persiga. Quando, porém, se lhe restabelece a serenidade nas ideias, vê que nenhum fundamento há mais para sua animosidade. Contudo, não é impossível que dela guarde vestígios mais ou menos fortes, conforme o seu caráter.*
+###### 548 — Como o Espírito percebe a separação da alma e do corpo em uma morte violenta?
 
-**— Continua a ouvir o rumor da batalha?**
-
-*— Perfeitamente.*
-
-###### 548 — O Espírito que, como espectador, assiste calmamente a um combate observa o ato de separar-se a alma do corpo? Como é que esse fenômeno se lhe apresenta à observação?
-
-*— Raras são as mortes verdadeiramente instantâneas. Na maioria dos casos, o Espírito cujo corpo acaba de ser mortalmente ferido não tem consciência imediata desse fato. Somente quando ele começa a se reconhecer é que se pode distinguir o Espírito, a mover-se ao lado do cadáver. Parece isso tão natural, que nenhum efeito desagradável causa a vista do corpo morto. Tendo-se a vida concentrado inteiramente no Espírito, só ele prende a atenção dos outros. É com ele que estes conversam, ou a ele é que fazem determinações.*
+*— Raramente a morte é instantânea. No começo, o Espírito fica confuso e não percebe imediatamente que morreu. Aos poucos, compreende a situação, e a separação lhe parece natural.*
 
 
 ##### Pactos
-###### 549 — Algo de verdade haverá nos pactos com os maus Espíritos?
+###### 549 — Existe alguma verdade nos pactos com Espíritos maus?
 
-*— Não, não há pactos. Há, porém, naturezas más que simpatizam com os maus Espíritos. Por exemplo: queres atormentar o teu vizinho e não sabes como hás de fazer. Chamas então por Espíritos inferiores que, como tu, só querem o mal e que, para te ajudarem, exigem que também os sirvas em seus maus desígnios. Mas não se segue que o teu vizinho não possa livrar-se deles por meio de uma conjuração oposta e pela ação da sua vontade. Aquele que intenta praticar uma ação má, pelo simples fato de alimentar essa intenção, chama em seu auxílio maus Espíritos, aos quais fica então obrigado a servir, porque dele também precisam esses Espíritos, para o mal que queiram fazer. Nisto apenas é que consiste o pacto.*
+*— Não, não existem pactos no sentido literal. O que existe são pessoas de natureza má que entram em sintonia com Espíritos igualmente maus. Por exemplo: alguém deseja prejudicar o vizinho e não sabe como fazer isso. Ao alimentar esse desejo, acaba atraindo Espíritos inferiores que, como ele, querem o mal. Esses Espíritos ajudam, mas exigem que a pessoa também os sirva em seus propósitos negativos. Isso não impede, porém, que o vizinho se liberte dessa influência por meio de sua própria vontade e de uma influência contrária. É apenas nisso que consiste o chamado “pacto”.*
 
-O fato de o homem ficar, às vezes, na dependência dos Espíritos inferiores nasce de se entregar aos maus pensamentos que estes lhe sugerem, e não de estipulações quaisquer que com eles faça. O pacto, no sentido vulgar do termo, é uma alegoria representativa da simpatia existente entre um indivíduo de natureza má e Espíritos malfazejos.
+*Quando alguém se torna dependente de Espíritos inferiores, isso acontece porque se entrega aos pensamentos ruins que eles sugerem, e não porque tenha feito algum acordo formal. O pacto, no sentido comum da palavra, é apenas uma imagem que representa a afinidade entre uma pessoa de má índole e Espíritos igualmente mal-intencionados.*
 
-###### 550 — Qual o sentido das lendas fantásticas em que figuram indivíduos que teriam vendido suas almas a Satanás para obterem certos favores?
+###### 550 — Qual o significado das lendas que falam de pessoas que teriam vendido a alma ao diabo para obter vantagens?
 
-*— Todas as fábulas encerram um ensinamento e um sentido moral. O vosso erro consiste em tomá-las ao pé da letra. Isso a que te referes é uma alegoria, que se pode explicar desta maneira: aquele que chama em seu auxílio os Espíritos para deles obter riquezas, ou qualquer outro favor, murmura contra a Providência; renuncia à missão que recebeu e às provas que lhe cumpre suportar neste mundo. Sofrerá na vida futura as consequências desse ato. Não quer isto dizer que sua alma fique para sempre condenada à desgraça. Mas como, em lugar de se desprender da matéria, nela cada vez se enterra mais, perderá, no mundo dos Espíritos, o que houver ganhado em prazeres terrenos, até que tenha resgatado a sua falta, por meio de novas provas, talvez maiores e mais penosas. Coloca-se, por amor dos gozos materiais, na dependência dos Espíritos impuros. Estabelece-se assim, tacitamente, entre eles, um pacto que o leva à sua perda, mas que lhe será sempre fácil romper, se o quiser firmemente, granjeando a assistência dos Espíritos bons.*
+*— Todas as fábulas trazem um ensinamento moral. O erro está em tomá-las ao pé da letra. Essa ideia é uma alegoria que pode ser explicada assim: quem recorre a Espíritos para obter riquezas ou favores materiais reclama da Providência, rejeita as provas que lhe cabem nesta vida e abandona a missão que assumiu ao encarnar. No futuro espiritual, sofrerá as consequências dessa escolha.*
+
+*Isso não significa que sua alma esteja condenada para sempre. Mas, ao se apegar cada vez mais à matéria, perderá no mundo espiritual tudo o que ganhou em prazeres terrenos, até reparar a falta por meio de novas provas, talvez mais difíceis. Por buscar satisfações materiais, coloca-se sob a influência de Espíritos impuros. Forma-se assim um pacto implícito, que pode ser rompido a qualquer momento, desde que a pessoa o queira de forma sincera e busque o auxílio dos Espíritos bons.*
 
 
 ##### Poder oculto. Talismãs. Feiticeiros
-###### 551 — Pode um homem mau, com o auxílio de um mau Espírito que lhe seja dedicado, fazer mal ao seu próximo?
+###### 551 — Pode uma pessoa má, com a ajuda de um Espírito mau, fazer mal ao próximo?
 
-*— Não; Deus não o permitiria.*
+*— Não. Deus não permitiria isso.*
 
-###### 552 — Que se deve pensar da crença no poder, que certas pessoas teriam, de enfeitiçar?
+###### 552 — O que pensar da crença de que certas pessoas teriam o poder de lançar feitiços?
 
-*— Algumas pessoas dispõem de grande poder magnético, de que podem fazer mau uso, se maus forem seus próprios Espíritos, caso em que possível se torna serem secundadas por outros Espíritos maus. Não creias, porém, num pretenso poder mágico, que só existe na imaginação de criaturas supersticiosas, ignorantes das verdadeiras leis da natureza. Os fatos que citam como prova da existência desse poder são fatos naturais, mal observados e sobretudo mal compreendidos.*
+*— Algumas pessoas possuem grande poder magnético e podem usá-lo de forma negativa se seus sentimentos forem ruins. Nesse caso, podem ser auxiliadas por Espíritos igualmente maus. Mas não existe poder mágico no sentido supersticioso. Isso só vive na imaginação de pessoas ignorantes das leis da natureza. Os fatos citados como prova desse poder são fenômenos naturais mal observados e mal interpretados.*
 
-###### 553 — Que efeito podem produzir as fórmulas e práticas mediante as quais pessoas há que pretendem dispor da vontade dos Espíritos?
+###### 553 — Que efeito produzem fórmulas e práticas usadas por pessoas que acreditam controlar Espíritos?
 
-*— O efeito de torná-las ridículas, se procedem de boa-fé. No caso contrário, são velhacos que merecem castigo. Todas as fórmulas são mera ilusão. Não há palavra sacramental nenhuma, nenhum sinal cabalístico, nem talismã, que tenha qualquer ação sobre os Espíritos, porquanto estes só são atraídos pelo pensamento e não pelas coisas materiais.*
+*— Tornam essas pessoas ridículas, quando agem de boa-fé. Quando há má-fé, tratam-se de charlatães que merecem reprovação. Todas essas fórmulas são ilusões. Não existe palavra sagrada, sinal cabalístico ou talismã que tenha ação sobre Espíritos. Eles respondem ao pensamento, não a objetos materiais.*
 
-**— Mas alguns Espíritos não têm por vezes ditado, eles próprios, fórmulas cabalísticas?**
+**— Mas alguns Espíritos não chegam a ditar fórmulas ou sinais estranhos?**
 
-*— Efetivamente, Espíritos há que indicam sinais, palavras estranhas, ou prescrevem a prática de atos, por meio dos quais se fazem os chamados conjuros. Mas ficai certos de que são Espíritos que de vós outros escarnecem e zombam da vossa credulidade.*
+*— Sim, alguns Espíritos indicam palavras estranhas ou gestos simbólicos, sugerindo conjuros. Mas são Espíritos zombeteiros, que se divertem explorando a credulidade humana.*
 
-###### 554 — Não pode aquele que, com ou sem razão, confia no que chama a virtude de um talismã, atrair um Espírito, por efeito mesmo dessa confiança, visto que, então, o que atua é o pensamento, não passando o talismã de um sinal que apenas lhe auxilia a concentração?
+###### 554 — A crença na virtude de um talismã não poderia atrair um Espírito, já que o que atua é o pensamento?
 
-*— É verdade; mas da pureza da intenção e da elevação dos sentimentos depende a natureza do Espírito que é atraído. Ora, raramente aquele que seja bastante simplório para acreditar na virtude de um talismã deixará de colimar um fim mais material do que moral. Qualquer, porém, que seja o caso, essa crença denuncia uma inferioridade e uma fraqueza de ideias que favorecem a ação dos Espíritos imperfeitos e escarninhos.*
+*— Sim, mas a natureza do Espírito atraído depende da intenção e da elevação moral de quem acredita nisso. Geralmente, quem confia em talismãs busca objetivos mais materiais do que morais. Essa crença revela fragilidade intelectual e favorece a ação de Espíritos inferiores e zombeteiros.*
 
-###### 555 — Que sentido se deve dar ao qualificativo de feiticeiro?
+###### 555 — Que significado deve ser dado ao termo “feiticeiro”?
 
-*— Aqueles a quem chamais feiticeiros são pessoas que, quando de boa-fé, gozam de certas faculdades, como sejam o poder magnético ou a segunda vista. Então, como fazem coisas que não são compreendidas, são tidas por dotadas de um poder sobrenatural. Os vossos cientistas não têm passado muitas vezes por feiticeiros aos olhos dos ignorantes?*
+*— O que vocês chamam de feiticeiros são, muitas vezes, pessoas que possuem certas faculdades naturais, como o magnetismo ou a segunda vista, e que, agindo de boa-fé, produzem efeitos que os ignorantes não compreendem. Por isso, são tidas como dotadas de poderes sobrenaturais. Quantas vezes cientistas também não foram considerados feiticeiros pelos ignorantes?*
 
-O Espiritismo e o magnetismo nos dão a chave de uma imensidade de fenômenos sobre os quais a ignorância teceu um sem-número de fábulas, em que os fatos se apresentam exagerados pela imaginação. O conhecimento lúcido dessas duas ciências que, a bem dizer, formam uma única, mostrando a realidade das coisas e suas verdadeiras causas, constitui o melhor preservativo contra as ideias supersticiosas, porque revela o que é possível e o que é impossível, o que está nas leis da natureza e o que não passa de ridícula crendice.
+*O Espiritismo e o magnetismo explicam inúmeros fenômenos que a ignorância transformou em lendas exageradas. O conhecimento claro dessas duas áreas — que, no fundo, formam uma só — é o melhor antídoto contra a superstição, pois mostra o que é possível, o que é natural e o que não passa de fantasia.*
 
-###### 556 — Têm algumas pessoas, verdadeiramente, o poder de curar pelo simples contato?
+###### 556 — Algumas pessoas realmente têm o poder de curar pelo simples contato?
 
-*— O poder magnético pode chegar até aí, quando secundado pela pureza dos sentimentos e por um ardente desejo de fazer o bem, porque então os Espíritos bons lhe vêm em auxílio. Cumpre, porém, desconfiar da maneira pela qual contam as coisas pessoas muito crédulas ou muito entusiastas, sempre dispostas a considerar maravilhoso o que há de mais simples e mais natural. Importa desconfiar também das narrativas interesseiras que costumam fazer os que exploram, em seu proveito, a credulidade alheia.*
+*— O poder magnético pode chegar a esse ponto quando aliado à pureza de intenção e ao sincero desejo de fazer o bem. Nesses casos, Espíritos bons auxiliam. No entanto, é preciso desconfiar dos relatos exagerados feitos por pessoas muito crédulas ou entusiasmadas, que veem o maravilhoso onde há apenas fenômenos naturais. Também é necessário cautela com relatos interesseiros de quem explora a fé alheia.*
+
 
 ##### Bênçãos e maldições
-###### 557 — Podem a bênção e a maldição atrair o bem e o mal para aquele sobre quem são lançadas?
+###### 557 — A bênção ou a maldição podem realmente atrair o bem ou o mal para alguém?
 
-*— Deus não escuta a maldição injusta, e culpado perante ele se torna quem a profere. Como temos os dois gênios opostos, o bem e o mal, pode a maldição exercer momentaneamente influência, mesmo sobre a matéria. Tal influência, porém, só se verifica por vontade de Deus, como aumento de prova para aquele que é dela objeto. Ademais, o que é comum é serem amaldiçoados os maus e abençoados os bons. Jamais a bênção e a maldição podem desviar da senda da justiça a Providência, que nunca fere o maldito, senão quando mau, e nunca favorece o abençoado, senão quando merecedor de sua proteção.*
+*— Deus não atende a uma maldição injusta, e quem a profere se torna responsável por isso. Como existem influências opostas — o bem e o mal —, uma maldição pode exercer influência momentânea, até mesmo sobre a matéria, mas apenas se Deus permitir, como prova para quem a recebe. Em geral, os maus são amaldiçoados e os bons são abençoados.*
+
+*A bênção ou a maldição jamais desviam a Providência do caminho da justiça. Deus só permite que o mal atinja quem pratica o mal e só concede proteção a quem a merece.*

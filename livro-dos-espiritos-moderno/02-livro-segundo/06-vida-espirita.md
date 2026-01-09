@@ -251,149 +251,190 @@ Quanto mais o Espírito se liberta da influência da matéria ainda durante a vi
 
 O estudo de inúmeros Espíritos, de todas as classes e condições, mostrou sempre que seus sofrimentos após a morte correspondiam à conduta que tiveram na vida. A outra vida é fonte de felicidade profunda para os que seguiram o bem. Logo, se alguém sofre, isso acontece como consequência de suas próprias escolhas. Ninguém deve queixar-se senão de si mesmo, neste mundo ou no outro.
 
-
 ##### Escolha de provas
+###### 258 — Quando está no estado espiritual, antes de iniciar uma nova existência corporal, o Espírito tem consciência e previsão do que lhe acontecerá durante a vida na Terra?
 
-###### 258 — Quando está na erraticidade, antes de iniciar uma nova existência corporal, o Espírito tem consciência e previsão do que lhe acontecerá na vida terrena?
+*— Sim. Ele próprio escolhe o tipo de provas pelas quais irá passar. É nisso que consiste o seu livre-arbítrio.*
 
-*— Ele próprio escolhe o tipo de provas pelas quais passará; nisso consiste o seu livre-arbítrio.*
+**— Então não é Deus quem impõe as dificuldades da vida como castigo?**
 
-**— Então não é Deus quem impõe as tribulações da vida como castigo?**
+*— Nada acontece sem a permissão de Deus, pois foi Ele quem estabeleceu todas as leis que regem o universo. Perguntar por que Ele criou esta lei e não outra seria questionar a própria sabedoria divina. Ao conceder ao Espírito a liberdade de escolher, Deus lhe dá total responsabilidade por seus atos e pelas consequências deles. Nada bloqueia o seu futuro: tanto o caminho do bem quanto o do mal estão abertos.*
 
-*— Nada acontece sem a permissão de Deus, pois foi Ele quem estabeleceu as leis que regem o universo. Ao conceder ao Espírito a liberdade de escolha, Deus lhe atribui a responsabilidade por seus atos e pelas consequências deles. Nada lhe bloqueia o futuro: tanto o caminho do bem quanto o do mal estão abertos.*
+*Se o Espírito vier a cair, permanece a consolação de que nem tudo está perdido e de que a bondade divina lhe concede a oportunidade de refazer o que foi mal conduzido. É importante distinguir o que resulta da vontade de Deus do que resulta da vontade humana. Se um perigo surge, não foste tu quem o criou, mas Deus. No entanto, foi tua a decisão de te expor a ele, por enxergá-lo como meio de progresso, e Deus o permitiu.*
 
-Se o Espírito fracassa, resta-lhe a consolação de que nada está perdido, pois a bondade divina lhe permite recomeçar. Cabe distinguir o que resulta da vontade divina e o que decorre da vontade humana. Um perigo pode existir por lei natural, mas a decisão de se expor a ele pertence ao Espírito.
+###### 259 — O fato de o Espírito escolher o tipo de provas que sofrerá significa que todas as dificuldades da vida foram previstas e escolhidas por ele?
 
-###### 259 — Do fato de o Espírito escolher suas provas, segue-se que todas as tribulações da vida foram previstas e escolhidas por ele?
+*— Não todas. O Espírito não escolhe nem prevê cada detalhe da vida, até as menores circunstâncias. Ele escolhe apenas o gênero das provas. Os detalhes decorrem da posição em que se encontra e, muitas vezes, de suas próprias ações.*
 
-*— Não todas. Escolhe-se o gênero de prova, não os detalhes. Estes resultam das circunstâncias e das próprias ações. Ao escolher nascer em determinado meio, o Espírito sabe a que tipo de desafios estará exposto, mas não prevê cada acontecimento específico.*
+*Ao escolher, por exemplo, nascer em um meio violento, o Espírito sabe que estará exposto a determinadas influências, mas não sabe exatamente quais atos praticará. Esses atos dependem do exercício do livre-arbítrio. Ele conhece a natureza geral das lutas que enfrentará, mas não os acontecimentos específicos. Os fatos principais, aqueles que influenciam o destino, são previstos; os secundários resultam das circunstâncias.*
 
-###### 260 — Como pode o Espírito desejar nascer entre pessoas de má conduta?
+*Se escolhes uma estrada cheia de buracos, sabes que precisarás andar com cuidado, pois há risco de cair, mas não sabes em que ponto isso pode acontecer, e talvez nem caias, se fores prudente. Da mesma forma, se uma telha cai sobre alguém ao atravessar uma rua, não penses que isso estava previamente escrito, como se costuma dizer.*
 
-*— Para encontrar o ambiente adequado à prova que pediu. Para lutar contra certos vícios, é necessário estar em contato com eles.*
+###### 260 — Como pode um Espírito desejar nascer em meio a pessoas de conduta moralmente má?
 
-###### 261 — O Espírito precisa passar por todas as tentações para atingir a perfeição?
+*— Porque é necessário estar em um ambiente adequado à prova escolhida. Para combater uma inclinação ao roubo, por exemplo, é preciso estar em contato com pessoas que roubam.*
 
-*— Não. Cada Espírito enfrenta as provas necessárias ao seu progresso, conforme suas fraquezas. Quem se afasta do mal evita muitos perigos.*
+**— Então, se não houvesse pessoas de maus costumes na Terra, não existiriam meios para certas provas?**
 
-###### 262 — Como um Espírito simples e inexperiente pode escolher provas adequadas?
+*— E isso seria algo lamentável? É o que ocorre nos mundos superiores, onde o mal não existe. Por isso, nesses mundos só há Espíritos bons. Façam com que o mesmo aconteça na Terra o quanto antes.*
 
-*— Deus supre sua inexperiência, orientando-o, como se faz com uma criança. À medida que o livre-arbítrio se desenvolve, o Espírito assume maior responsabilidade por suas escolhas.*
+###### 261 — Para alcançar a perfeição, o Espírito precisa passar por todo tipo de tentação?
 
-###### 263 — O Espírito pode ser obrigado a aceitar determinada existência?
+*— Não. Há Espíritos que, desde cedo, seguem um caminho que os dispensa de muitas provas. No entanto, aquele que se deixa arrastar pelo mal acaba enfrentando diversos perigos.*
 
-*— Deus não apressa a expiação, mas pode impor uma existência quando o Espírito, por sua inferioridade, não compreende o que lhe seria mais benéfico.*
+*Um Espírito pode, por exemplo, pedir a prova da riqueza e obtê-la. A partir disso, conforme seu caráter, pode tornar-se avarento ou generoso, egoísta ou desprendido, ou ainda se entregar aos excessos. Isso não significa, porém, que ele tenha de passar obrigatoriamente por todas essas inclinações.*
 
-###### 264 — O que orienta o Espírito na escolha de suas provas?
+###### 262 — Como um Espírito, inicialmente simples, ignorante e sem experiência, pode escolher uma existência com discernimento e ser responsável por essa escolha?
 
-*— A natureza de suas faltas e o desejo de progredir mais rapidamente.*
+*— Deus supre sua inexperiência, indicando-lhe o caminho, como fazem os pais com uma criança. Aos poucos, à medida que o livre-arbítrio se desenvolve, Ele o deixa escolher por si mesmo. É então que, muitas vezes, o Espírito se perde ao ignorar os conselhos dos Espíritos bons. É isso que se pode chamar de queda.*
 
-###### 265 — Há Espíritos que escolhem o contato com o vício por afinidade?
+**— Quando o Espírito já possui livre-arbítrio, a escolha da existência depende sempre apenas de sua vontade ou pode ser imposta por Deus como expiação?**
 
-*— Sim, entre os que ainda têm senso moral pouco desenvolvido. Sofrem por mais tempo até compreenderem as consequências de suas escolhas.*
+*— Deus sabe esperar e não força a expiação. No entanto, pode impor uma existência quando o Espírito, por inferioridade ou resistência, não compreende o que lhe seria mais útil, e quando essa experiência contribuir para sua purificação, progresso e reparação.*
 
-###### 266 — Por que o Espírito não escolhe sempre as provas menos dolorosas?
+###### 263 — O Espírito faz essa escolha logo após a morte?
 
-*— Porque, fora da matéria, ele avalia as provas de modo diferente. Vê nelas um meio rápido de alcançar a felicidade duradoura, assim como um doente aceita um remédio amargo para se curar.*
+*— Não. Muitos permanecem por algum tempo presos à crença em penas eternas, o que, como já foi dito, constitui um castigo.*
 
-###### 267 — O Espírito pode influenciar a escolha de provas ainda encarnado?
+###### 264 — O que orienta o Espírito na escolha das provas que deseja enfrentar?
 
-*— Pode, pelo desejo sincero de melhorar. Contudo, como Espírito livre, muitas vezes enxerga as coisas de modo diferente.*
+*— Ele escolhe de acordo com a natureza de suas faltas e com aquilo que pode levá-lo à reparação e ao progresso mais rápido. Alguns se impõem vidas de privações e dificuldades para enfrentá-las com coragem; outros preferem a prova da riqueza e do poder, mais perigosa pelos abusos e paixões que pode despertar; outros, ainda, escolhem enfrentar o vício para testar suas forças morais.*
 
-###### 268 — Mesmo após certo grau de elevação, o Espírito ainda passa por provas?
+###### 265 — Existem Espíritos que buscam o contato com o vício não como prova, mas por afinidade e desejo de satisfazer paixões materiais?
 
-*— Sim, mas não como sofrimentos materiais. São deveres e responsabilidades que contribuem para seu aperfeiçoamento.*
+*— Sim, mas apenas entre Espíritos cujo senso moral ainda é pouco desenvolvido. Nesse caso, a prova surge naturalmente, e eles a enfrentam por mais tempo. Mais cedo ou mais tarde, compreendem que a satisfação dessas paixões traz consequências dolorosas, que podem parecer intermináveis. Deus os deixa nessa condição até que reconheçam o erro e, por vontade própria, peçam meios de reparação por meio de provas úteis.*
 
-###### 269 — O Espírito pode enganar-se na escolha das provas?
+###### 266 — Não é natural que se escolham provas menos dolorosas?
 
-*— Pode. Nesse caso, reconhece o erro e pede novas oportunidades.*
+*— Isso parece natural do ponto de vista humano, mas não do Espírito. Quando se liberta da matéria, toda ilusão desaparece e sua forma de pensar muda.*
 
-###### 270 — As vocações humanas decorrem dessas escolhas anteriores?
+Na Terra, o ser humano vê apenas o lado penoso das provas. Por isso acha natural escolher aquelas que ainda permitam prazeres materiais. No estado espiritual, porém, o Espírito compara esses prazeres passageiros com a felicidade duradoura que passa a vislumbrar, e os sofrimentos temporários já não o impressionam.
 
-*— Sim. São consequência do progresso realizado em vidas passadas.*
+Assim, pode escolher provas duras e uma existência difícil, esperando alcançar mais rapidamente um estado melhor, como o doente que aceita um remédio amargo para se curar logo. Quem busca descobrir uma região desconhecida não escolhe caminhos fáceis; conhece os perigos, mas também sabe da recompensa.
 
-###### 271 — Como um Espírito imagina progredir ao nascer entre povos primitivos?
+Quando se compreende que os Espíritos, livres da matéria, avaliam a vida de modo diferente, a escolha de provas difíceis deixa de parecer estranha. Após cada existência, o Espírito vê o quanto avançou e o quanto ainda precisa progredir. Por isso, aceita voluntariamente as dificuldades que podem levá-lo mais rápido à meta.
 
-*— Espíritos mais adiantados não nascem nesses meios. Para Espíritos ainda inferiores, tal nascimento representa progresso.*
+A vida humana reflete, em pequena escala, a vida espiritual. Assim como na Terra escolhemos esforços e sacrifícios para alcançar posições melhores, o Espírito, que vê mais longe e sabe que a vida corporal é breve, pode escolher uma existência árdua se isso o conduzir à felicidade duradoura.
 
-###### 272 — Espíritos de mundos inferiores podem nascer entre povos civilizados?
+###### 267 — O Espírito pode escolher suas provas enquanto ainda está encarnado?
 
-*— Podem, mas muitas vezes se sentem deslocados, pois seus instintos entram em conflito com o meio.*
+*— Os desejos que manifesta podem influenciar escolhas futuras, conforme a intenção que os anima. No entanto, como Espírito livre, ele frequentemente vê as coisas de modo diferente. Ainda assim, há momentos na vida material em que o Espírito se desprende da matéria e pode orientar essas escolhas.*
 
-###### 273 — Um homem civilizado pode reencarnar entre povos primitivos como expiação?
+**— Certamente não é como prova ou expiação que muitos desejam riquezas e poder, não é?**
 
-*— Pode, conforme a natureza da falta. Também pode ser missão, quando um Espírito elevado busca auxiliar o progresso desses povos.*
+*— Não. Nesses casos, é a matéria que deseja desfrutar dessas condições, enquanto o Espírito busca compreender suas consequências.*
 
+###### 268 — Até alcançar a perfeição, o Espírito precisa passar constantemente por provas?
+
+*— Sim, mas não da forma como vocês entendem. O que chamam de provas são, em geral, sofrimentos materiais. Quando o Espírito se eleva, deixa de sofrer dessa maneira, embora continue sujeito a deveres que contribuem para seu aperfeiçoamento, como ajudar outros a progredir.*
+
+###### 269 — O Espírito pode enganar-se quanto à eficácia da prova que escolheu?
+
+*— Sim. Pode escolher uma prova acima de suas forças e fracassar, ou uma que nada lhe traga de útil, como uma vida ociosa. Ao retornar ao mundo espiritual, percebe que não avançou e pede nova oportunidade para recuperar o tempo perdido.*
+
+###### 270 — A que se devem as vocações e a inclinação de certas pessoas para determinadas carreiras?
+
+*— Isso decorre da escolha das provas e do progresso realizado em existências anteriores.*
+
+###### 271 — Ao estudar, no estado espiritual, as condições de progresso, como o Espírito imagina alcançá-lo ao nascer, por exemplo, entre povos considerados selvagens?
+
+*— Espíritos adiantados não nascem entre povos extremamente atrasados. Aqueles que ali encarnam possuem natureza semelhante ou ainda inferior.*
+
+Existem mundos mais rudes do que a Terra, onde a brutalidade é maior. Para Espíritos desses mundos, nascer entre povos primitivos da Terra representa progresso. O avanço do Espírito é gradual; não se dá por saltos. É por isso que a reencarnação é necessária e justa.
+
+###### 272 — Espíritos vindos de mundos inferiores ou de povos muito atrasados podem nascer entre povos civilizados?
+
+*— Podem, mas alguns se perdem ao tentar subir rápido demais. Nesse caso, sentem-se deslocados, pois seus instintos entram em conflito com o meio em que vivem.*
+
+Ao retornarem ao ambiente anterior, não sofrem degradação, apenas retomam o lugar que lhes corresponde, podendo até se beneficiar disso.*
+
+###### 273 — Um homem de sociedade civilizada pode reencarnar, como expiação, entre povos considerados selvagens?
+
+*— Pode, dependendo da natureza da expiação. Quem abusou do poder pode nascer em condição de submissão; quem foi cruel pode sofrer os mesmos maus-tratos que infligiu. Deus pode impor essas experiências como reparação. Um Espírito bom também pode escolher nascer entre povos primitivos, em posição de influência, para ajudá-los a progredir. Nesse caso, cumpre uma missão.*
 
 ##### As relações no além-túmulo
+###### 274 — A existência de diferentes ordens de Espíritos implica hierarquia e autoridade entre eles?
 
-###### 274 — Há hierarquia entre os Espíritos?
+*— Sim. Há uma hierarquia baseada no grau de elevação moral. A autoridade decorre de um ascendente moral natural.*
 
-*— Sim. A autoridade decorre da superioridade moral.*
+**— Espíritos inferiores podem escapar dessa autoridade?**
 
-###### 275 — O poder terreno confere superioridade espiritual?
+*— Eu disse: irresistível.*
 
-*— Não. A verdadeira grandeza é a moral.*
+###### 275 — O poder e o prestígio que alguém teve na Terra lhe conferem superioridade no mundo espiritual?
 
-###### 276 — O Espírito orgulhoso sofre ao reconhecer sua inferioridade após a morte?
+*— Não. Muitas vezes, os pequenos são elevados e os grandes rebaixados.*
 
-*— Muitas vezes, sofre intensamente.*
+**— Como entender isso?**
 
-###### 277 — Títulos e posições mantêm valor no mundo espiritual?
+*— Os Espíritos pertencem a diferentes ordens conforme seus méritos. Alguém que foi poderoso na Terra pode ocupar posição inferior no mundo espiritual, enquanto um simples servidor pode estar entre os mais elevados. Foi isso que Jesus ensinou ao dizer que quem se humilha será exaltado.*
 
-*— Não. Apenas o mérito real conta.*
+###### 276 — Um Espírito orgulhoso sente humilhação ao perceber sua inferioridade no mundo espiritual?
 
-###### 278 — Os Espíritos convivem entre si?
+*— Sim, especialmente se for vaidoso e invejoso.*
 
-*— Sim, agrupam-se por afinidade, sem se confundir.*
+###### 277 — Um soldado continua vendo seu general como superior no mundo espiritual?
+
+*— Títulos não têm valor; apenas a superioridade moral conta.*
+
+###### 278 — Os Espíritos de diferentes ordens convivem entre si?
+
+*— Sim e não. Eles se veem, mas se distinguem. Aproximam-se ou se afastam conforme a afinidade, como acontece entre vocês.*
 
 ###### 279 — Todos os Espíritos têm acesso a todos os grupos?
 
-*— Os bons podem ir a toda parte; os inferiores não têm acesso às regiões elevadas.*
+*— Os Espíritos bons podem ir a todos os lugares para influenciar os maus. Já as regiões habitadas por Espíritos elevados não são acessíveis aos inferiores, para evitar perturbações.*
 
-###### 280 — Qual é a relação entre bons e maus Espíritos?
+###### 280 — Qual é a relação entre Espíritos bons e maus?
 
-*— Os bons buscam auxiliar os maus a progredirem.*
+*— Os bons se dedicam a combater as más inclinações dos outros, ajudando-os a progredir. Essa é sua missão.*
 
-###### 281 — Por que Espíritos inferiores tentam induzir os encarnados ao mal?
+###### 281 — Por que Espíritos inferiores gostam de induzir os humanos ao mal?
 
-*— Por despeito e desejo de impedir o progresso alheio.*
+*— Por ressentimento. Desejam impedir que outros alcancem o bem que eles próprios ainda não conquistaram.*
 
-###### 282 — Como os Espíritos se comunicam?
+###### 282 — Como os Espíritos se comunicam entre si?
 
-*— Pela transmissão direta do pensamento, por meio do fluido universal.*
+*— Eles se veem e se compreendem diretamente. A palavra é material; o pensamento se transmite por meio do fluido universal, que funciona como um meio de comunicação, assim como o ar transmite o som entre vocês.*
 
-###### 283 — Podem ocultar seus pensamentos?
+###### 283 — Os Espíritos podem esconder seus pensamentos uns dos outros?
 
-*— Em geral, não. A transparência aumenta conforme a elevação.*
+*— Não completamente. Para os Espíritos, tudo é visível, especialmente para os mais elevados. No entanto, alguns podem tornar-se invisíveis a outros, se julgarem necessário.*
 
-###### 284 — Como se reconhecem individualmente?
+###### 284 — Como os Espíritos, sem corpo físico, reconhecem sua individualidade?
 
-*— Pelo perispírito, que os distingue.*
+*— Pelo perispírito, que os distingue uns dos outros, assim como o corpo distingue os seres humanos.*
 
-###### 285 — Reconhecem parentes e amigos?
+###### 285 — Espíritos que conviveram na Terra se reconhecem após a morte?
 
-*— Sim, com plena clareza.*
+*— Sim, perfeitamente.*
 
-###### 286 — O reencontro é imediato?
+**— Como ocorre esse reconhecimento?**
 
-*— Nem sempre; depende do estado do Espírito.*
+*— Pela recordação da vida passada, que se apresenta como um livro aberto.*
 
-###### 287 — Como é acolhida a alma ao retornar ao mundo espiritual?
+Os Espíritos também podem, quando necessário, se reconhecer pela aparência que tinham quando vivos. Ao Espírito que acaba de chegar, e ainda pouco familiarizado com seu novo estado, os Espíritos que o vêm receber apresentam-se sob uma forma que lhe permite reconhecê-los.
 
-*— A do justo é acolhida com alegria; a do mau, com indiferença ou isolamento.*
+###### 286 — Ao deixar o corpo, a alma vê imediatamente parentes e amigos?
 
-###### 288 — Espíritos maus sentem satisfação ao encontrar outros semelhantes?
+*— Nem sempre imediatamente. É preciso algum tempo para que o Espírito se reconheça e se liberte das impressões materiais.*
 
-*— Sim, como ocorre entre pessoas de mesma índole na Terra.*
+###### 287 — Como a alma é recebida ao retornar ao mundo espiritual?
 
-###### 289 — Parentes e amigos costumam vir ao encontro do desencarnado?
+*— A do justo é acolhida com alegria; a do mau, com frieza e afastamento.*
 
-*— Sim, quando há afinidade e merecimento.*
+###### 288 — Como os Espíritos imperfeitos reagem à chegada de outro Espírito semelhante?
 
-###### 290 — As famílias permanecem unidas para sempre?
+*— Sentem satisfação, como criminosos que se reencontram entre iguais.*
 
-*— Apenas quando caminham juntas no progresso. Caso contrário, reencontram-se apenas ocasionalmente.*
+###### 289 — Parentes e amigos vêm ao nosso encontro após a morte?
+
+*— Sim. Aqueles que nos amam vêm nos receber, ajudam no desligamento do corpo e celebram o retorno, como quem volta de uma viagem difícil. Isso é uma recompensa para os Espíritos bons; o isolamento, para os maus, é uma forma de punição.*
+
+###### 290 — Parentes e amigos permanecem sempre juntos após a morte?
+
+*— Depende do grau de elevação e do ritmo de progresso de cada um. Se um avança mais rápido que o outro, não permanecem juntos o tempo todo, embora possam se reencontrar. A separação temporária pode ser, em certos casos, uma prova.*
+
 
 ##### Relações de simpatia e antipatia entre os Espíritos. Metades eternas
 ###### 291 — Além da simpatia geral, decorrente da semelhança entre eles, os Espíritos desenvolvem afeições particulares?
@@ -485,7 +526,7 @@ Assim como o adulto ri das imprudências da juventude ou das ingenuidades da inf
 
 *— Ora como lembrança evocada pela vontade, ora como um quadro que se impõe à visão. Tudo depende do grau de desmaterialização. Quanto mais elevado, menos importância dá às coisas materiais.*
 
-Por isso, Espíritos recém-desencarnados muitas vezes não se lembram de nomes ou detalhes que eram importantes para os vivos, pois essas coisas já perderam relevância. O que permanece claro são os fatos que contribuíram para seu progresso.
+*Por isso, Espíritos recém-desencarnados muitas vezes não se lembram de nomes ou detalhes que eram importantes para os vivos, pois essas coisas já perderam relevância. O que permanece claro são os fatos que contribuíram para seu progresso.*
 
 ###### 308 — O Espírito se recorda de todas as existências anteriores?
 
@@ -545,51 +586,59 @@ Os Espíritos mais elevados permanecem pouco tempo ligados à Terra, a menos que
 
 
 ##### Comemoração dos mortos. Funerais
+###### 320 — Os Espíritos se sentem tocados quando aqueles que lhes foram queridos na Terra se lembram deles?
 
-###### 320 — O fato de os vivos se lembrarem dos mortos sensibiliza os Espíritos?
+*— Muito mais do que vocês imaginam. Se estão felizes, isso aumenta sua felicidade; se estão em sofrimento, serve como alívio.*
 
-*— Muito mais do que imaginais. Para os felizes, isso aumenta a felicidade; para os que sofrem, é um alívio.*
+###### 321 — O dia de comemoração dos mortos é, para os Espíritos, mais especial do que os outros dias?  
+Eles comparecem aos cemitérios quando as pessoas vão orar sobre seus túmulos?
 
-###### 321 — O dia da comemoração dos mortos é especial para os Espíritos?
+*— Os Espíritos atendem, nesse dia, ao chamado daqueles que lhes dirigem pensamentos, assim como o fazem em qualquer outro dia.*
 
-*— Eles atendem ao chamado dos pensamentos nesse dia, como em qualquer outro.*
+**— Mas o Dia de Finados é, para eles, um momento especial de reunião junto às sepulturas?**
 
-**— Eles se reúnem nos cemitérios?**
+*— Nesse dia, eles se reúnem em maior número nos cemitérios, porque também é maior o número de pessoas que os chamam pelo pensamento. No entanto, cada Espírito vai apenas ao encontro de seus afetos, não da multidão indiferente.*
 
-*— Em maior número, sim, pois há mais pessoas que os evocam mentalmente. Contudo, cada Espírito vai apenas ao encontro dos que lhe são ligados.*
+**— De que forma eles se apresentam ali, e como os veríamos, se pudessem tornar-se visíveis?**
 
-###### 322 — E os Espíritos esquecidos, cujos túmulos ninguém visita?
+*— Sob a aparência que tinham quando encarnados.*
 
-*— Pouco lhes importa a Terra. O que os liga a ela é o afeto, não o local físico.*
+###### 322 — E aqueles que são esquecidos, cujos túmulos ninguém visita, também comparecem? Sentem tristeza por ninguém se lembrar deles?
 
-###### 323 — A visita a um túmulo agrada mais ao Espírito do que a prece feita em casa?
+*— Que importância tem a Terra para eles? O vínculo existe apenas enquanto há afeição. Quando ninguém mais lhes dedica pensamento ou carinho, nada os prende a esse mundo. O universo inteiro está à disposição do Espírito.*
 
-*— O que importa é o pensamento sincero. O lugar é irrelevante.*
+###### 323 — A visita a um túmulo traz mais satisfação ao Espírito do que a prece feita em casa?
 
-###### 324 — Espíritos homenageados com monumentos ou estátuas assistem a essas solenidades?
+*— A visita ao túmulo é uma forma exterior de demonstrar que se pensa no Espírito ausente. Ela representa o pensamento. No entanto, já foi dito que é a prece que santifica o ato da lembrança. O lugar não importa, desde que a intenção seja sincera.*
 
-*— Muitos assistem, quando podem, mas valorizam mais a lembrança afetiva do que as homenagens materiais.*
+###### 324 — Os Espíritos das pessoas a quem se erguem estátuas ou monumentos assistem à sua inauguração? Sentem prazer nisso?
 
-###### 325 — O desejo de ser enterrado em determinado lugar indica inferioridade espiritual?
+*— Muitos assistem, quando podem. No entanto, são menos tocados pelas homenagens exteriores do que pela lembrança sincera que as pessoas conservam deles.*
 
-*— Pode refletir apego material. Para Espíritos elevados, o local não tem importância.*
+###### 325 — Qual a origem do desejo que algumas pessoas têm de serem enterradas em determinado lugar? Após a morte, o Espírito prefere esse local? Essa importância dada a algo tão material indica inferioridade espiritual?
 
-**— Reunir os restos mortais da família é futilidade?**
+*— Trata-se de apego a lugares específicos, o que revela certa inferioridade moral. Para um Espírito elevado, que importância teria este ou aquele pedaço de terra? Ele sabe que sua alma se reunirá àqueles que ama, ainda que seus ossos permaneçam separados.*
 
-*— Não. É um costume piedoso que conforta os vivos, embora seja indiferente aos Espíritos.*
+**— Deve-se considerar futilidade o desejo de reunir, em um mesmo local, os restos mortais de todos os membros de uma família?**
 
-###### 326 — As honras prestadas ao corpo após a morte afetam o Espírito?
+*— Não. É um costume respeitável e uma demonstração de afeto por parte dos vivos. Embora não tenha importância real para os Espíritos, essa prática é útil aos encarnados, pois torna as lembranças mais concentradas e vivas.*
 
-*— Espíritos elevados compreendem a futilidade disso. Espíritos ainda ligados à matéria podem sentir prazer ou desgosto, conforme conservem vaidades terrenas.*
+###### 326 — As homenagens prestadas aos despojos mortais comovem o Espírito que retorna à vida espiritual?
+
+*— Quando o Espírito já atingiu certo grau de elevação, ele se encontra livre das vaidades terrenas e compreende a futilidade dessas homenagens. No entanto, há Espíritos que, nos primeiros momentos após a morte, ainda sentem prazer com as honras recebidas ou se incomodam com o desprezo dado ao corpo. Isso acontece porque ainda conservam alguns dos preconceitos da vida material.*
 
 ###### 327 — O Espírito assiste ao próprio enterro?
 
-*— Frequentemente, sim, salvo se ainda estiver em perturbação.*
+*— Frequentemente, sim. Em alguns casos, porém, ele não percebe o que acontece, se ainda estiver em estado de perturbação.*
 
-###### 328 — O Espírito assiste à reunião dos herdeiros?
+**— A presença de muitas pessoas no enterro lhe causa satisfação?**
 
-*— Muitas vezes. Isso pode servir de aprendizado ou correção moral.*
+*— Depende do sentimento que anima essas pessoas.*
 
-###### 329 — O respeito instintivo que os seres humanos têm pelos mortos decorre da intuição da vida futura?
+###### 328 — O Espírito daquele que acaba de morrer acompanha a reunião de seus herdeiros?
 
-*— Sim. Sem essa intuição, tal respeito não teria razão de existir.*
+*— Quase sempre. Para seu aprendizado e, às vezes, como correção aos culpados, Deus permite que isso aconteça. Nessa ocasião, o Espírito avalia o real valor das manifestações de afeto que recebia. Todos os sentimentos se tornam evidentes, e a decepção causada pela ganância daqueles que disputam seus bens o esclarece quanto à verdadeira natureza dessas relações. Mas chegará o momento daqueles que lhe causam essa decepção.*
+
+###### 329 — O respeito instintivo que, em todas as épocas e povos, o ser humano dedica aos mortos decorre da intuição da vida futura?
+
+*— Sim. É a consequência natural dessa intuição. Se assim não fosse, esse respeito não teria razão de existir.*

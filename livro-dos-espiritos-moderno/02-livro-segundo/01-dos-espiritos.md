@@ -184,7 +184,7 @@ Conservam a lembrança e a percepção dos sofrimentos da vida material, e essa 
 
 Podem ser divididos em cinco classes principais.
 
-###### 102 — Décima classe — Espíritos impuros
+###### 102 — Décima classe — ESPÍRITOS IMPUROS
 
 São inclinados ao mal, que se torna o centro de suas preocupações.
 
@@ -196,7 +196,7 @@ Alguns povos os transformaram em divindades maléficas; outros os chamaram de de
 
 Quando encarnados, os seres que eles animam tendem a todos os vícios gerados por paixões degradantes: sensualidade, crueldade, traição, hipocrisia, avareza e ganância. Praticam o mal por prazer, muitas vezes sem motivo, e, por ódio ao bem, escolhem frequentemente como vítimas pessoas honestas. São verdadeiros flagelos para a humanidade, independentemente da posição social que ocupem. O verniz da civilização não os livra da vergonha nem da desonra.
 
-###### 103 — Nona classe — Espíritos levianos
+###### 103 — Nona classe — ESPÍRITOS LEVIANOS
 
 São ignorantes, brincalhões, irrefletidos e zombeteiros. Intrometem-se em tudo, respondem a tudo, sem se preocupar com a verdade. Gostam de causar pequenos aborrecimentos e alegrias passageiras, de confundir e enganar por meio de brincadeiras, truques e mistificações.
 
@@ -204,17 +204,17 @@ A essa classe pertencem os Espíritos popularmente conhecidos como duendes, gnom
 
 Em suas comunicações, a linguagem pode ser espirituosa e divertida, mas quase sempre superficial. Exploram falhas e ridículos humanos com ironia e sarcasmo. Quando usam nomes falsos, geralmente o fazem mais por travessura do que por maldade.
 
-###### 104 — Oitava classe — Espíritos pseudossábios
+###### 104 — Oitava classe — ESPÍRITOS PSEUDOSSÁBIOS
 
 Possuem conhecimentos relativamente amplos, mas acreditam saber mais do que realmente sabem. Embora tenham feito algum progresso, sua linguagem aparenta seriedade e pode iludir quanto à profundidade de suas ideias.
 
 Na realidade, suas comunicações refletem preconceitos e sistemas de pensamento que cultivavam na vida material. Misturam algumas verdades com erros graves, permeados por orgulho, presunção, inveja e teimosia, imperfeições das quais ainda não conseguiram se libertar.
 
-###### 105 — Sétima classe — Espíritos neutros
+###### 105 — Sétima classe — ESPÍRITOS NEUTROS
 
 Não são suficientemente bons para praticar o bem, nem suficientemente maus para praticar o mal. Oscilam entre ambos e permanecem na condição comum da humanidade, tanto no aspecto moral quanto no intelectual. Mantêm apego às coisas materiais e sentem saudade dos prazeres grosseiros da vida terrestre.
 
-###### 106 — Sexta classe — Espíritos batedores e perturbadores
+###### 106 — Sexta classe — ESPÍRITOS BATEDORES E PERTURBADORES
 
 Esses Espíritos não constituem uma classe distinta por suas qualidades morais. Podem pertencer a qualquer das classes da terceira ordem. Manifestam-se principalmente por efeitos físicos e sensíveis, como pancadas, movimentos e deslocamentos anormais de objetos, agitação do ar e fenômenos semelhantes.
 
@@ -239,19 +239,19 @@ A essa ordem pertencem os Espíritos conhecidos popularmente como bons gênios, 
 
 Podem ser divididos em quatro grupos principais:
 
-###### 108 — Quinta classe — Espíritos benevolentes
+###### 108 — Quinta classe — ESPÍRITOS BENEVOLENTES
 
 A bondade é sua principal característica. Sentem prazer em ajudar e proteger os seres humanos. No entanto, seus conhecimentos ainda são limitados. Avançaram mais no aspecto moral do que no intelectual.
 
-###### 109 — Quarta classe — Espíritos de ciência
+###### 109 — Quarta classe — ESPÍRITOS DE CIÊNCIA
 
 Distinguem-se pela amplitude de seus conhecimentos. Interessam-se mais por questões científicas do que morais, para as quais demonstram maior aptidão. Ainda assim, encaram a ciência sob o prisma da utilidade e não são dominados por paixões próprias dos Espíritos imperfeitos.
 
-###### 110 — Terceira classe — Espíritos de sabedoria
+###### 110 — Terceira classe — ESPÍRITOS DE SABEDORIA
 
 Caracterizam-se por elevadas qualidades morais. Embora não possuam conhecimento ilimitado, têm discernimento suficiente para julgar com acerto os seres e as situações.
 
-###### 111 — Segunda classe — Espíritos superiores
+###### 111 — Segunda classe — ESPÍRITOS SUPERIORES
 
 Reúnem ciência, sabedoria e bondade. Sua linguagem é sempre digna, elevada e, muitas vezes, sublime. Sua superioridade os torna mais aptos a transmitir noções corretas sobre o mundo espiritual, dentro dos limites do que é permitido ao ser humano conhecer.
 
@@ -264,7 +264,7 @@ Quando, excepcionalmente, encarnam na Terra, cumprem missões de progresso e ofe
 
 Ausência de qualquer influência da matéria. Superioridade intelectual e moral absoluta em relação aos Espíritos das demais ordens.
 
-###### 113 — Primeira classe — Classe única
+###### 113 — Primeira classe — CLASSE ÚNICA
 
 Percorreram todos os graus da escala e se libertaram completamente das impurezas da matéria. Tendo alcançado o máximo de perfeição possível às criaturas, não precisam mais passar por provas ou expiações. Não estando mais sujeitos à reencarnação em corpos perecíveis, vivem a vida eterna em comunhão com Deus.
 
@@ -373,7 +373,7 @@ A palavra “anjo” costuma evocar a ideia de perfeição moral. No entanto, mu
 
 *— Se existissem demônios nesse sentido, seriam obra de Deus. Mas seria Deus justo e bom se tivesse criado seres destinados eternamente ao mal e à infelicidade? Se há demônios, eles se encontram no mundo inferior em que viveis e em outros semelhantes. São homens hipócritas que transformam um Deus justo em um Deus vingativo, acreditando agradá-lo por meio das atrocidades que cometem em seu nome.*
 
-A palavra “demônio”, em sua origem grega *daímōn*, significava gênio ou inteligência e se aplicava aos seres incorpóreos, bons ou maus, sem distinção. A ideia moderna associa o termo exclusivamente a seres essencialmente maus.
+A palavra “demônio”, em sua origem grega "daímōn", significava gênio ou inteligência e se aplicava aos seres incorpóreos, bons ou maus, sem distinção. A ideia moderna associa o termo exclusivamente a seres essencialmente maus.
 
 Entender demônios como Espíritos eternamente maus é ilógico e contraditório. Deus, sendo soberanamente justo e bom, não poderia criar seres destinados ao mal perpétuo. Os chamados demônios são, na realidade, Espíritos imperfeitos, rebeldes às provas que lhes cabem, e que por isso prolongam seu sofrimento. Esse estado, porém, é transitório, pois todos podem sair dele quando assim o desejarem.
 
