@@ -129,7 +129,7 @@ A natureza deu ao homem a necessidade de amar e de ser amado. Um dos maiores goz
 
 *— Não compreendes então que isso constitui uma punição, se bem que passageira? Depois, quantos não são os que acreditam amar perdidamente, porque apenas julgam pelas aparências, e que, obrigados a viver com as pessoas amadas, não tardam a reconhecer que só experimentaram um encantamento material! Não basta uma pessoa estar enamorada de outra que lhe agrada e em quem supõe belas qualidades. Vivendo realmente com ela é que poderá apreciá-la. Também há muitas uniões que a princípio parecem destinadas a nunca serem simpáticas, mas que, quando os dois seres que as constituem se estudam e se conhecem bem, acabam por votar-se duradouro e terno amor, porque assente na estima! Cumpre não se esqueça de que é o Espírito quem ama e não o corpo, de sorte que, dissipada a ilusão material, o Espírito vê a realidade.*
 
-Duas espécies há de afeição: a do corpo e a da alma, acontecendo com frequência tomar-se uma pela outra. Quando pura e simpática, a afeição da alma é duradoura; efêmera a do corpo. Daí vem que, muitas vezes, os que julgavam amar-se com eterno amor passam a odiar-se, quando a ilusão se desfaz.*
+Duas espécies há de afeição: a do corpo e a da alma, acontecendo com frequência tomar-se uma pela outra. Quando pura e simpática, a afeição da alma é duradoura; efêmera a do corpo. Daí vem que, muitas vezes, os que julgavam amar-se com eterno amor passam a odiar-se, quando a ilusão se desfaz.
 
 ###### 940 — Não constitui igualmente fonte de dissabores, tanto mais amargos quanto envenenam toda a existência, a falta de simpatia entre seres destinados a viver juntos?
 
@@ -161,7 +161,7 @@ O homem moral, que se colocou acima das necessidades factícias criadas pelas pa
 
 *— Efeito da ociosidade, da falta de fé e, não raro, da saciedade.*
 
-Para aquele que usa de suas faculdades com fim útil e de acordo com as suas aptidões naturais, o trabalho nada tem de árido e a vida se escoa mais rapidamente. Ele lhe suporta as vicissitudes com tanto mais paciência e resignação, quanto obra com o fito da felicidade mais sólida e mais durável que o espera.*
+Para aquele que usa de suas faculdades com fim útil e de acordo com as suas aptidões naturais, o trabalho nada tem de árido e a vida se escoa mais rapidamente. Ele lhe suporta as vicissitudes com tanto mais paciência e resignação, quanto obra com o fito da felicidade mais sólida e mais durável que o espera.
 
 ###### 944 — Tem o homem o direito de dispor da sua vida?
 
